@@ -40,8 +40,6 @@ La ley de protección de los conocimientos colectivos incluye varias herramienta
 - Sancionar a quienes revelen, adquieran o usen nuestro conocimiento colectivo sin nuestro consentimiento y de manera desleal.
 - Preservar nuestros conocimientos colectivos a través de los Registros.
 ¿Y qué tipos de conocimientos colectivos protege la Ley 27811?
-Esa ley garantiza la protección de los conocimientos colectivos que tenemos sobre los usos de los “recursos biológicos”;
-es decir, los conocimientos que tenemos sobre las propiedades de los elementos vivos de la naturaleza, como las plantas y los animales.
 ¿Cómo hace la ley para proteger los conocimientos colectivos?
 La ley tiene diversas formas de proteger nuestros conocimientos colectivos:
 por ejemplo, lo hace a través del “consentimiento informado previo”, a través de los “contratos de licencia de uso” o a través de las sanciones a quienes no respeten nuestros derechos.

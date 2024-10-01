@@ -1,9 +1,23 @@
-import src.data.Paco_Yunque_Data_Extraction as paco_yunque
-import src.data.Guia_Comunicacion_Intercultural_Salud_Data_Extraction as guia_intercultaral_salud
-import src.data.Carta_Tarapoto_Data_Extraction as carta_tarapoto
-import src.data.Diccionario_Awajun_Castellano_Data_Extraction as diccionario_agr_es
+import argparse
+from src.data.Data_Extraction import run_all_extractions
 
-paco_yunque.main()
-guia_intercultaral_salud.main()
-carta_tarapoto.main()
-diccionario_agr_es.main()
+def main():
+    parser = argparse.ArgumentParser(description="Data extraction script")
+
+    parser.add_argument(
+        '-e', '--extract',
+        action='store_true',
+        help="Run data extraction process"
+    )
+
+    args = parser.parse_args()
+
+    if args.extract:
+        print("Running data extraction...")
+        run_all_extractions()
+    else:
+        print("No action specified. Use -e or --extract to run data extraction")
+
+
+if __name__ == "__main__":
+    main()
