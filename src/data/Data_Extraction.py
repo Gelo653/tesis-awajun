@@ -8,7 +8,7 @@ def run_all_extractions():
     # guia_intercultaral_salud.main()
     # carta_tarapoto.main()
     # diccionario_agr_es.main()
-    print("Hello World")
+    print("Extraction completed without problems.")
 
 if __name__ == "__main__":
     run_all_extractions()
