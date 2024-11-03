@@ -602,8 +602,7 @@ Subió al pupitre y miró severamente a los alumnos.
 Después les dijo con su voz un poco ronca pero enérgica:
 —De todos los ejercicios que ustedes han hecho ahora, el mejor es de Humberto Grieve.
 Así es que el nombre de este niño va a ser inscrito en el Cuadro de Honor de esta semana, como el mejor alumno del primer año.
-Salga afuera Humberto Grieve.
-Todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
+Salga afuera Humberto Grieve, todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
 El Director le dio la mano, diciéndole:
 —Muy bien, Humberto Grieve.
 Lo felicito.

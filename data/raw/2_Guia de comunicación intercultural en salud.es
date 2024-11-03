@@ -302,17 +302,21 @@ Primo (de hombre) hijo del tío materno, cuñado ( de hombre
 Hermana (de mujer), prima (de mujer, hija del tío paterno)
 Hermano (de hombre), primo (de hombre)
 Prima de mujer (hija del tío materno, diich)
-Hermano, - a (entre hombre y mujer), primo, - a (entre hombre y mujer, hijo, - a del tío paterno, apág)
-Primo, - a (entre hombre y mujer, hijo, - a  del tío materno, diich,  conyuge potencial)
-Cuñado, - a (entre hombre y mujer)
+Hermano, primo
+Primo
+Prima
+Cuñado
+Cuñada
 Hijo
-Sobrino (hijo de yatsúg)
-Niña, hija, sobrina (hija de kaíg)
-Sobrino (hijo de sáig o de antsúg)
-Sobrina (hijo de yuág o de antsúg)
-Sobrino, - a  (hijo, - a  de ubág, yerno o nuera, cónyuge de hijo, - a)
-Nieto, - a
-Bisnieto, - a
+Sobrino 
+Niña, hija, sobrina
+Sobrino
+Sobrina
+Sobrino
+Nieto
+Nieta
+Bisnieto
+Bisnieta
 Cabeza
 Frente
 Cara
