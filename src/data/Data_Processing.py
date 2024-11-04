@@ -1,4 +1,14 @@
-import os
+import os, random
+
+def read_file(file_path):
+    with open(file_path, 'r', encoding='utf-8') as file:
+        lines = file.readlines()
+    return [line.strip() for line in lines]
+
+def save_to_file(sentences, file_path):
+    with open(file_path, "w", encoding="utf-8") as file:
+        for sentence in sentences:
+            file.write(sentence + "\n")
 
 def process_files(input_directory: str):
     # Create output file paths
@@ -43,15 +53,43 @@ def process_files(input_directory: str):
                         esp_file.writelines(es_lines)  # Write to the esp_output_path
                         agr_file.writelines(agr_lines)  # Write to the agr_output_path
 
+def split_sentences(dir: str = 'processed_dir'):
+    spanish_sentences = read_file(os.path.join(dir,'esp_corpus.es'))
+    awajun_sentences = read_file(os.path.join(dir, 'agr_corpus.agr'))
+    assert len(spanish_sentences) == len(awajun_sentences), "Mismatched number of sentences!"
+
+    print(len(spanish_sentences),' - ', len(awajun_sentences))
+
+    paired_sentences = list(zip(spanish_sentences, awajun_sentences))
+    random.shuffle(paired_sentences)
+    spanish_sentences, awajun_sentences = zip(*paired_sentences)
+
+    split_ratio = 0.8
+    split_index = int(len(spanish_sentences) * split_ratio)
+
+    spanish_train = spanish_sentences[:split_index]
+    spanish_test = spanish_sentences[split_index:]
+
+    awajun_train = awajun_sentences[:split_index]
+    awajun_test = awajun_sentences[split_index:]
+
+    save_to_file(spanish_train, os.path.join(dir,'train','spanish_train.es'))
+    save_to_file(spanish_test, os.path.join(dir,'test','spanish_test.es'))
+    save_to_file(awajun_train, os.path.join(dir,'train','awajun_train.agr'))
+    save_to_file(awajun_test, os.path.join(dir,'test','awajun_test.agr'))
+
+
 def process_data():
     # Directories
     external_dir = './data/external'
     raw_dir = './data/preprocessed'
+    processed_dir = './data/processed'
     
     process_files(external_dir)
     process_files(raw_dir)
+    split_sentences(processed_dir)
         
     print("Processing completed without problems.")
-
+    
 if __name__ == "__main__":
     process_data()
