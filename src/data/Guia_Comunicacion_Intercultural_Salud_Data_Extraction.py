@@ -46,7 +46,7 @@ def extract_tables_from_pdf(pdf_path, output_es_path, output_agr_path):
     print(f"The agr file can be found at {output_agr_path}")
     print(f"The es file can be found at {output_es_path}")
 
-def main():
+def main(output_directory: str = 'data/raw'):
     pdf_path = get_file_path('../../data/pdf/2. Guia de comunicación intercultural en salud.pdf')
 
     print(f"Looking for PDF at: {pdf_path}")
@@ -55,8 +55,8 @@ def main():
         print(f"Error: The file {pdf_path} does not exist")
     else:
         print("File found. Proceeding with extraction...")
-        file_es_path = get_file_path('../../data/raw/2_Guia de comunicación intercultural en salud.es')
-        file_agr_path = get_file_path('../../data/raw/2_Guia de comunicación intercultural en salud.agr')
+        file_es_path = os.path.join(output_directory,'2_Guia de comunicación intercultural en salud.es')
+        file_agr_path = os.path.join(output_directory,'2_Guia de comunicación intercultural en salud.agr')
         extract_tables_from_pdf(pdf_path, file_es_path, file_agr_path)
 
         print("Extraction finished.")

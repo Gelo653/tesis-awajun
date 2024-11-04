@@ -1,8 +1,7 @@
 from bs4 import BeautifulSoup
 import requests
-import sys
 import os
-from ..utils.Data_Extraction_functions import extract_lines_from_text, write_lines_to_file, get_file_path
+from ..utils.Data_Extraction_functions import extract_lines_from_text, write_lines_to_file
 
 def extract_text_from_url(url, start_phrase, end_phrase):
     """
@@ -30,7 +29,7 @@ def extract_text_from_url(url, start_phrase, end_phrase):
         print("No se pudo encontrar el texto especificado.")
         return None
 
-def main():
+def main(output_directory: str = 'data/raw'):
     # Extract text in spanish
     url_es = 'https://caaap.org.pe/2017/05/09/carta-de-tarapoto-viii-foro-social-panamazonico/'
     start_phrase_es = "La Panamazonía está"
@@ -40,7 +39,7 @@ def main():
 
     if extracted_text_es:
         lines_es = extract_lines_from_text(extracted_text_es)
-        file_es_path = get_file_path("../../data/raw/16_Carta de Tarapoto.es")
+        file_es_path = os.path.join(output_directory,'16_Carta de Tarapoto.es')
         write_lines_to_file(lines_es, file_es_path)
 
     # Extract text in awajun
@@ -52,7 +51,7 @@ def main():
     
     if extracted_text_agr:
         lines_agr = extract_lines_from_text(extracted_text_agr)
-        file_agr_path = get_file_path("../../data/raw/16_Carta de Tarapoto.agr")
+        file_agr_path = os.path.join(output_directory,'16_Carta de Tarapoto.agr')
         write_lines_to_file(lines_agr, file_agr_path)
 
     print("Extraction finished.")

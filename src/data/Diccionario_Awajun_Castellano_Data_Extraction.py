@@ -240,7 +240,7 @@ page_ranges = {
     'y': (210, 218),
 }
 
-def main():
+def main(output_directory: str = 'data/raw'):
     pdf_path = get_file_path('../../data/pdf/1. Diccionario-Awajun-Castellano.pdf')
 
     print(f"Looking for PDF at: {pdf_path}")
@@ -250,9 +250,9 @@ def main():
     else:
         print("File found. Proceeding with extraction...")
         # file_mono_agr_path = get_file_path('../../data/raw/1_Diccionario Awajun-es.agr')
-        file_agr_path = get_file_path('../../data/raw/1_Diccionario Awajun-Castellano.agr')
-        file_es_path = get_file_path('../../data/raw/1_Diccionario Awajun-Castellano.es')
-        
+        file_es_path = os.path.join(output_directory,'1_Diccionario Awajun-Castellano.es')
+        file_agr_path = os.path.join(output_directory,'1_Diccionario Awajun-Castellano.agr')
+                
         reader = pypdf.PdfReader(pdf_path)
 
         # Extract pages dynamically

@@ -1,5 +1,6 @@
 ¡Hola como estas¡
-Buenos Días (amaneció bonito día)
+Buenos Días
+Buenos Día
 Buenas Tardes
 Buenas Noches
 Ya es tarde
@@ -13,6 +14,7 @@ Con quien has venido
 Está lloviendo
 Hace mucho calor
 Tengo mucho frío
+¿Se va a su chacra?
 ¿Se va a su chacra?
 ¿Viene de su chacra?
 Ya me voy
@@ -280,7 +282,7 @@ Abre la boca
 Cierra la boca
 Por favor no escupir al piso
 Niño - varón
-Niña – mujer
+Niña - mujer
 Mujer - adulta
 Hombre
 Es tu esposa?
@@ -302,17 +304,21 @@ Primo (de hombre) hijo del tío materno, cuñado ( de hombre
 Hermana (de mujer), prima (de mujer, hija del tío paterno)
 Hermano (de hombre), primo (de hombre)
 Prima de mujer (hija del tío materno, diich)
-Hermano, - a (entre hombre y mujer), primo, - a (entre hombre y mujer, hijo, - a del tío paterno, apág)
-Primo, - a (entre hombre y mujer, hijo, - a  del tío materno, diich,  conyuge potencial)
-Cuñado, - a (entre hombre y mujer)
+Hermano, primo
+Primo
+Prima
+Cuñado
+Cuñada
 Hijo
-Sobrino (hijo de yatsúg)
-Niña, hija, sobrina (hija de kaíg)
-Sobrino (hijo de sáig o de antsúg)
-Sobrina (hijo de yuág o de antsúg)
-Sobrino, - a  (hijo, - a  de ubág, yerno o nuera, cónyuge de hijo, - a)
-Nieto, - a
-Bisnieto, - a
+Sobrino 
+Niña, hija, sobrina
+Sobrino
+Sobrina
+Sobrino
+Nieto
+Nieta
+Bisnieto
+Bisnieta
 Cabeza
 Frente
 Cara
@@ -392,7 +398,7 @@ Un ovulo por la noche
 señalización
 Paquete niño - adolescente
 Paquete mujer
-Paquete adulto – adulto mayor
+Paquete adulto - adulto mayor
 Consultorio
 Farmacia
 Triaje
@@ -690,3 +696,122 @@ Quien
 ¿Porque?
 ¿Donde?
 Ven
+Uno
+Dos
+Tres
+Cuatro
+Cinco
+Seis
+Siete
+Ocho
+Nueve
+Diez
+Once
+Doce
+Trece
+Catorce
+Quince
+Dieciséis
+Diecisiete
+Dieciocho
+Diecinueve
+Veinte
+el sol ha salido
+el sol se ha alzado
+el sol esta está casi entre los dos
+medio día
+el sol esta listo para declinar
+cuando es tarde
+el sol se pone
+se ha oscurecido
+el sol se ha escondido
+medianoche
+el día visita
+amanece
+Buenos días
+¿Cómo estás?
+Gracias
+Muy bien gracias
+¿Y usted?
+Muy bien
+Hola
+Yo bien
+¿Dónde vives tú?
+Yo vivo en el Jr.
+Nos vemos
+Ya.
+Corona
+Collar
+Arete de plumas
+Tambor
+Cinta para pelo
+¿Cómo está su esposo?
+Mi esposa está bien, gracias.
+¿Cómo está su hijo?
+Mi hijo está enfermo.
+¿Dónde estudias?
+Yo estudio en la Universidad
+¿Quién es el apu aquí?
+El apu es
+¿Vas a ir a Tutumberos?
+Si claro por supuesto.
+¿Quién es el?
+préstame
+Ayúdame
+Feliz cumpleaños
+Quisiera pasear
+¿Qué hora es?
+Te quiero
+vamos a la danza
+por ti
+amor
+amorcito
+Bichuchi blanco
+Bichuchi amarillo
+Grano de oro
+Plátano de freír
+Plátano de seda
+Plátano isleño
+Sachapapa
+Daledale amarillo
+Daledale blanco
+Serma
+Zapallo
+Yacón silvestre
+Caña de azúcar
+Cocona
+Coconillo
+Bituca
+Camote
+Yuca
+Papaya
+Almendra
+Chupe
+Sacha mango
+Huacambo
+Huacambillo
+Chambira
+Huicungo
+Chimico grande
+Chimico chico
+Ovilla
+Hungurabi
+Pijuayo
+Aguaje
+Huasé
+Pan de árbol silvestre
+Leche caspi
+Zapote
+Shapaja morado
+Shapaja amarillo
+Algodón
+Corteza de árbol
+Fibra de chambira
+blanco
+negro
+azul marino
+rojo
+verde
+amarillo
+celeste
+guinda

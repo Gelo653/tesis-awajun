@@ -4,7 +4,6 @@ Entonces
 Sin embargo
 Como
 Como
-Y
 Así mismo
 Cuando
 Cuando

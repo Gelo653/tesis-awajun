@@ -16,7 +16,7 @@ def pages_to_string(pdf_pages):
         text += page
     return text
 
-def main():
+def main(output_directory: str = 'data/raw'):
     pdf_path = get_file_path('../../data/pdf/8. Paco Yunque.pdf')
 
     print(f"Looking for PDF at: {pdf_path}")
@@ -52,8 +52,8 @@ def main():
         lines_es = extract_lines_from_text(text_es)
         lines_agr = extract_lines_from_text(text_agr)
 
-        file_es_path = get_file_path('../../data/raw/8_Paco Yunque.es')
-        file_agr_path = get_file_path('../../data/raw/8_Paco Yunque.agr')
+        file_es_path = os.path.join(output_directory,'8_Paco Yunque.es')
+        file_agr_path = os.path.join(output_directory, '8_Paco Yunque.agr')
 
         write_lines_to_file(lines_es, file_es_path)
         write_lines_to_file(lines_agr, file_agr_path)

@@ -1,4 +1,5 @@
 import argparse
+import os
 from src.data.Data_Extraction import run_all_extractions
 from src.data.Data_Processing import process_data
 from src.visualization.Data_visualization import tsv_from_file
@@ -28,7 +29,8 @@ def main():
 
     if args.extract:
         print("Running data extraction...")
-        run_all_extractions()
+        output_directory = 'data/raw'
+        run_all_extractions(output_directory)
     elif args.process:
         print("Processing data...")
         process_data()

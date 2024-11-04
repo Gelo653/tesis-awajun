@@ -14,8 +14,7 @@ Frente a ello, los pueblos amazónicos y andinos continuamos resistiendo y movil
 La respuesta de los Estados es la criminalización de la protesta social para debilitar a las organizaciones indígenas, de mujeres, movimientos sociales e instituciones de la sociedad civil y profundizar su modelo y su alianza con las empresas petroleras, mineras, madereras, agroindustriales y de megaproyectos hidroeléctricos.
 Ante este contexto, el VIII Foro Social Panamazónico plantea fortalecer la alianza, articulación y movilización de los pueblos amazónicos y andinos basada en el respeto a la Naturaleza, el territorio y la vida.
 Por lo tanto, las propuestas recogidas en el Foro se presentan a continuación:
-Construir nuevos paradigmas a partir de las propuestas de Vida Plena, Buen Vivir, Vivir Bien, Autogobiernos territoriales etc.
-que levantan, entre otros, los pueblos originarios amazónicos y andinos.
+Construir nuevos paradigmas a partir de las propuestas de Vida Plena, Buen Vivir, Vivir Bien, Autogobiernos territoriales etc. que levantan, entre otros, los pueblos originarios amazónicos y andinos.
 Exigir a los Estados que las políticas y normas nacionales se adecuen a las leyes internacionales sobre derechos de los pueblos indígenas amazónicos y andinos.
 Denunciar y luchar contra la corrupción relacionada con el modelo extractivista y los megaproyectos de infraestructura y explotación en la Amazonía y el Ande.
 Fortalecer la articulación y la unidad de las organizaciones sociales, indígenas amazónicas y andinas, de mujeres, afroamazónicos, comunidades LGTBIQ, académicos, organizaciones de jóvenes, adolescentes, niñas y niños y otros movimientos sociales.
@@ -35,7 +34,7 @@ Los/as jóvenes, niños, niñas y adolescentes exigimos a los Estados el reconoc
 Asimismo exigimos que los Estados garanticen su derecho a crecer en un entorno seguro y sano para vivir de manera plena.
 Exigimos el reconocimiento de la educación comunitaria intercultural como expresión del respeto a las culturas amazónicas y andinas y la construcción de una ciudadanía intercultural.
 Impulsar políticas públicas que aborden la gestión de la diversidad, reconociendo, valorando y aprovechando la diversidad cultural de los pueblos indígenas en las ciudades, integrando a la juventud y la niñez.
-Promover nuevas relaciones entre lo urbano – rural, campo-ciudad, generando y promoviendo el consumo responsable basado entre otros en la agricultura ecológica.
+Promover nuevas relaciones entre lo urbano - rural, campo-ciudad, generando y promoviendo el consumo responsable basado entre otros en la agricultura ecológica.
 Promover la agroforestería ecológica y la gestión sostenible de los bosques Amazónico-Andinos desde las organizaciones indígenas para la seguridad y soberanía alimentaria.
 Recuperar productos y especies nativas a través del intercambio de semillas y cultivos dentro de las comunidades, entre ellas y la población en general con la participación activa de las mujeres.
 Reivindicar y fortalecer las identidades de los pueblos amazónicos y andinos, recuperando el uso de las lenguas originarias.

@@ -1,7 +1,6 @@
 import os
-from src.utils.Data_Extraction_functions import write_lines_to_file
 
-def process_files(input_directory):
+def process_files(input_directory: str):
     # Create output file paths
     esp_output_path = "./data/processed/esp_corpus.es"
     agr_output_path = "./data/processed/agr_corpus.agr"
@@ -46,12 +45,12 @@ def process_files(input_directory):
 
 def process_data():
     # Directories
-    raw_dir = './data/raw'
     external_dir = './data/external'
-
-    process_files(raw_dir)
-    process_files(external_dir)
+    raw_dir = './data/preprocessed'
     
+    process_files(external_dir)
+    process_files(raw_dir)
+        
     print("Processing completed without problems.")
 
 if __name__ == "__main__":

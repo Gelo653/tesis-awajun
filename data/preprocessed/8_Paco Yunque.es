@@ -5,7 +5,7 @@ Paco estaba con miedo, porque era la primera vez que venía a un colegio y porqu
 Varios alumnos, pequeños como él, se le acercaron y Paco, cada vez más tímido, se pegó a la pared y se puso colorado.
 ¡Qué listos eran todos esos chicos!
 ¡Qué desenvueltos!
-Como si estuviesen en su casa.
+Como si estuviesenen su casa.
 Gritaban.
 Corrían.
 Reían hasta reventar.
@@ -17,7 +17,7 @@ En el campo hablaba primero uno, después otro, después otro y después otro.
 A veces, oyó hablar hasta cuatro o cinco personas juntas.
 Era su padre, su madre, don José, el cojo Anselmo y la Tomasa.
 Con las gallinas eran más.
-Y más todavía con la acequia, cuando crecía… Pero no.
+Y más todavía con la acequia, cuando crecía... Pero no.
 Eso no era ya voz de personas, sino otro ruido, muy diferente.
 Y ahora sí que esto del colegio era una bulla fuerte, de muchos.
 Paco estaba asordado.
@@ -30,7 +30,7 @@ Pero Paco no se dejó.
 El trigueño volvió a agarrarlo con más fuerza y lo jaló.
 Paco se pegó más a la pared y se puso más colorado.
 En ese momento sonó la campana, y todos entraron a los salones de clase.
-Dos niños —los hermanos Zumiga— tomaron de una y otra mano a Paco y le condujeron a la sala de primer año.
+Dos niños -los hermanos Zumiga- tomaron de una y otra mano a Paco y le condujeron a la sala de primer año.
 Paco no quiso seguirlos al principio, pero luego obedeció, porque vio que todos hacían lo mismo.
 Al entrar al salón se puso pálido.
 Todo quedó repentinamente en silencio y este silencio le dio miedo a Paco.
@@ -50,24 +50,24 @@ Ahí, solo, parado, en el colegio.
 Quería llorar.
 El profesor le tomó de la mano y lo llevó a instalar en una de las carpetas delanteras junto a un niño de su mismo tamaño.
 El profesor le preguntó:
-—¿Cómo se llama usted?
+-¿Cómo se llama usted?
 Con voz temblorosa, Paco respondió muy bajito:
-—Paco.
-—¿Y su apellido?
+-Paco.
+-¿Y su apellido?
 Diga usted todo su nombre.
-—Paco Yunque.
-—Muy bien.
+-Paco Yunque.
+-Muy bien.
 El profesor volvió a su pupitre y, después de echar una mirada muy seria sobre todos los alumnos, dijo con voz de militar:
-—¡Siéntense!
+-¡Siéntense!
 Un traqueteo de carpetas y todos los alumnos ya estaban sentados.
 El profesor también se sentó y durante unos momentos escribió en unos libros.
 Paco Yunque tenía aún en la mano su libro, su cuaderno y su lápiz.
 Su compañero de carpeta le dijo:
-—Pon tus cosas, como yo, en la carpeta.
+-Pon tus cosas, como yo, en la carpeta.
 Paco Yunque seguía muy aturdido y no le hizo caso.
 Su compañero le quitó entonces sus libros y los puso en la carpeta.
 Después, le dijo alegremente:
-—Yo también me llamo Paco.
+-Yo también me llamo Paco.
 Paco Fariña.
 No tengas pena.
 Vamos a jugar con mi tablero.
@@ -88,63 +88,63 @@ De cuando en cuando, llegaban voces de otros salones de clase y ruidos de carret
 Paco Yunque empezaba a volver un poco de su aturdimiento.
 Pensó en su casa y en su mamá.
 Le preguntó a Paco Fariña:
-—¿A qué hora nos iremos a nuestras casas?
-—A las once.
+-¿A qué hora nos iremos a nuestras casas?
+-A las once.
 ¿Dónde está tu casa?
-—Por allá.
-—¿Está lejos?
-—Sí… No…Paco Yunque no sabía en qué calle estaba su casa, porque acababan de traerlo, hacía pocos días, del campo y no conocía la ciudad.
+-Por allá.
+-¿Está lejos?
+-Sí... No...Paco Yunque no sabía en qué calle estaba su casa, porque acababan de traerlo, hacía pocos días, del campo y no conocía la ciudad.
 Sonaron unos pasos de carrera en el patio, apareció en la puerta del salón Humberto, el hijo del señor Dorian Grieve, un inglés, patrón de los Yunque, gerente de los ferrocarriles de la «Peruvian Corporation» y alcalde del pueblo.
 Precisamente a Paco le habían hecho venir del campo para que acompañe al colegio a Humberto y para que juegue con él, pues ambos tenían la misma edad.
 Sólo que Humberto acostumbraba venir tarde al colegio y esta vez, por ser la primera, la señora Grieve le había dicho a la madre de Paco:
-—Lleve usted ya a Paco al colegio.
+-Lleve usted ya a Paco al colegio.
 No sirve que llegue tarde el primer día.
 Desde mañana esperará a que Humberto se levante y los llevará usted juntos a los dos.
 El profesor, al ver a Humberto Grieve, le dijo:
-—¿Hoy otra vez tarde?
+-¿Hoy otra vez tarde?
 Humberto, con gran desenfado, respondió:
-—Me he quedado dormido.
-—Bueno —dijo el profesor—.
+-Me he quedado dormido.
+-Bueno -dijo el profesor-.
 Que ésta sea la última vez.
 Pase a sentarse.
 Humberto Grieve buscó con la mirada donde estaba Paco Yunque.
 Al dar con él, se le acercó y le dijo imperiosamente:
-—Ven a mi carpeta conmigo.
+-Ven a mi carpeta conmigo.
 Paco Fariña le dijo a Humberto Grieve:
-—No.
+-No.
 Porque el señor lo ha puesto aquí.
-—¿Y a ti qué te importa?
-—le increpó Grieve violentamente, arrastrando a Yunque por un brazo a su carpeta.
-—¡Señor!
-—gritó entonces Fariña—, Grieve se está llevando a Paco Yunque a su carpeta.
+-¿Y a ti qué te importa?
+-le increpó Grieve violentamente, arrastrando a Yunque por un brazo a su carpeta.
+-¡Señor!
+-gritó entonces Fariña-, Grieve se está llevando a Paco Yunque a su carpeta.
 El profesor cesó de escribir y preguntó con voz enérgica:
-—¡Vamos a ver!
+-¡Vamos a ver!
 ¡Silencio!
 ¿Qué pasa ahí?
 Fariña volvió a decir:
-—Grieve se ha llevado a su carpeta a Paco Yunque.
+-Grieve se ha llevado a su carpeta a Paco Yunque.
 Humberto Grieve instalado ya en su carpeta con Paco Yunque, le dijo al profesor:
-—Sí, señor.
+-Sí, señor.
 Porque Paco Yunque es mi muchacho.
 Por eso.
 El profesor sabía esto perfectamente y le dijo a Humberto Grieve:
-—Muy bien.
+-Muy bien.
 Pero yo lo he colocado con Paco Fariña, para que atienda mejor las explicaciones.
 Déjelo que vuelva a su sitio.
 Todos los alumnos miraban en silencio al profesor, a Humberto Grieve y a Paco Yunque.
 Fariña fue y tomó a Paco Yunque por la mano y quiso volverlo a traer a su carpeta, pero Grieve tomó a Paco Yunque por el otro brazo y no lo dejó moverse.
 El profesor le dijo otra vez a Grieve:
-—¡Grieve!
+-¡Grieve!
 ¿Qué es esto?
 Humberto Grieve, colorado de cólera, dijo:
-—No, señor.
+-No, señor.
 Yo quiero que Yunque se quede conmigo.
-—Déjelo, le he dicho.
-—No, señor.
-—¿Cómo?
-—No.
+-Déjelo, le he dicho.
+-No, señor.
+-¿Cómo?
+-No.
 El profesor estaba indignado y repetía, amenazador:
-—¡Grieve!
+-¡Grieve!
 ¡Grieve!
 Humberto Grieve tenía bajos los ojos y sujetaba fuertemente por el brazo a Paco Yunque, el cual estaba aturdido y se dejaba jalar como un trapo por Fariña y por Grieve.
 Paco Yunque tenía ahora más miedo a Humberto Grieve que al profesor, que a todos los demás niños y que al colegio entero.
@@ -152,36 +152,36 @@ Paco Yunque tenía ahora más miedo a Humberto Grieve que al profesor, que a tod
 Porque este Humberto Grieve solía pegarle a Paco Yunque.
 El profesor se acercó a Paco Yunque, le tomó por el brazo y le condujo a la carpeta de Fariña.
 Grieve se puso a llorar, pataleando furiosamente en su banco.
-De nuevo se oyeron pasos en el patio y otro alumno, Antonio Gesdres —hijo de un albañil—, apareció a la puerta del salón.
+De nuevo se oyeron pasos en el patio y otro alumno, Antonio Gesdres -hijo de un albañil-, apareció a la puerta del salón.
 El profesor le dijo:
-—¿Por qué llega usted tarde?
-—Porque fui a comprar pan para el desayuno.
-—¿Y por qué no fue usted más temprano?
-—Porque estuve alzando a mi hermanito y mamá está enferma y papá se fue a su trabajo.
-—Bueno —dijo el profesor, muy serio—.
-Párese ahí… Y, además, tiene usted una hora de reclusión.
+-¿Por qué llega usted tarde?
+-Porque fui a comprar pan para el desayuno.
+-¿Y por qué no fue usted más temprano?
+-Porque estuve alzando a mi hermanito y mamá está enferma y papá se fue a su trabajo.
+-Bueno -dijo el profesor, muy serio-.
+Párese ahí... Y, además, tiene usted una hora de reclusión.
 Le señaló un rincón, cerca de la pizarra de ejercicios.
 Paco Fariña se levantó entonces y dijo:
-—Grieve también ha llegado tarde, señor.
-—Miente, señor, —respondió rápidamente Humberto Grieve—.
+-Grieve también ha llegado tarde, señor.
+-Miente, señor, -respondió rápidamente Humberto Grieve-.
 No he llegado tarde.
 Todos los alumnos dijeron en coro:
-—¡Sí, señor!
+-¡Sí, señor!
 ¡Sí, señor!
 ¡Grieve ha llegado tarde!
-—¡Psch!
+-¡Psch!
 ¡Silencio!
-—dijo malhumorado el profesor y todos los niños se callaron.
+-dijo malhumorado el profesor y todos los niños se callaron.
 El profesor se paseaba pensativo.
 Fariña le decía a Yunque en secreto:
-—Grieve ha llegado tarde y no lo castigan.
+-Grieve ha llegado tarde y no lo castigan.
 Porque su papá tiene plata.
 Todos los días llega tarde.
 ¿Tú vives en su casa?
 ¿Cierto que eres su muchacho?
 Yunque respondió:
-—Yo vivo con mi mamá…—¿En la casa de Humberto Grieve?
-—Es una casa muy bonita.
+-Yo vivo con mi mamá...-¿En la casa de Humberto Grieve?
+-Es una casa muy bonita.
 Ahí está la patrona y el patrón.
 Ahí está mi mamá.
 Yo estoy con mi mamá.
@@ -196,20 +196,20 @@ Y en la escalera.
 Y también en la cocina, delante su mamá y delante la patrona.
 Ahora le va a pegar, porque le estaba enseñando los puñetes y le miraba con ojos blancos.
 Yunque le dijo a Fariña:
-—Me voy a la carpeta del niño Humberto.
+-Me voy a la carpeta del niño Humberto.
 Y Paco Fariña le decía:
-—No vayas.
+-No vayas.
 No seas zonzo.
 El señor te va a castigar.
 Fariña volteó a ver a Grieve y este Grieve le enseñó también a él los puños, refunfuñando no sé qué cosas, a escondidas del profesor.
-—¡Señor!
-—gritó Fariña—.
+-¡Señor!
+-gritó Fariña-.
 Ahí, ese Grieve me está enseñando los puñetes.
 El profesor dijo:
-—¡Psch!
+-¡Psch!
 ¡Psch!
 ¡Silencio!
-… Vamos a ver… Vamos a hablar hoy de los peces, y después, vamos a hacer todos un ejercicio escrito en una hoja de los cuadernos, y después me los dan para verlos.
+... Vamos a ver... Vamos a hablar hoy de los peces, y después, vamos a hacer todos un ejercicio escrito en una hoja de los cuadernos, y después me los dan para verlos.
 Quiero ver quién hace el mejor ejercicio, para que su nombre sea inscrito en el Cuaderno de Honor del Colegio, como el mejor alumno del primer año.
 ¿Me han oído bien?
 Vamos a hacer lo mismo que hicimos la semana pasada.
@@ -218,27 +218,27 @@ Hay que atender bien a la clase.
 Hay que copiar bien el ejercicio que voy a escribir después en la pizarra.
 ¿Me han entendido bien?
 Los alumnos respondieron en coro:
-—Sí, señor.
-—Muy bien —dijo el profesor—.
+-Sí, señor.
+-Muy bien -dijo el profesor-.
 Vamos a ver.
 Vamos a hablar ahora de los peces.
 Varios niños quisieron hablar.
 El profesor le dijo a uno de los Zumiga que hablase.
-—Señor —dijo Zumiga—:
+-Señor -dijo Zumiga-:
 Había en la playa mucha arena.
 Un día nos metimos entre la arena y encontramos un pez medio vivo y lo llevamos a mi casa.
-Pero se murió en el camino…Humberto Grieve dijo:
-—Señor:
+Pero se murió en el camino...Humberto Grieve dijo:
+-Señor:
 yo he cogido muchos peces y los he llevado a mi casa y los he soltado en mi salón y no se mueren nunca.
 El profesor preguntó:
-—Pero… ¿los deja usted en alguna vasija con agua?
-—No, señor.
+-Pero... ¿los deja usted en alguna vasija con agua?
+-No, señor.
 Están sueltos, entre los muebles.
 Todos los niños se echaron a reír.
 Un chico, flacucho y pálido, dijo:
-—Mentira, señor.
+-Mentira, señor.
 Porque el pez se muere pronto, cuando lo sacan del agua.
-—No, señor —decía Humberto Grieve—.
+-No, señor -decía Humberto Grieve-.
 Porque en mi salón no se mueren.
 Porque mi salón es muy elegante.
 Porque mi papá me dijo que trajera peces y que podía dejarlos sueltos entre las sillas.
@@ -251,7 +251,7 @@ El chico rubio y gordo, de chaqueta blanca y el otro, cara redonda y chaqueta ve
 ¡Como si fuesen pájaros!
 Era una gran mentira lo que contaba Grieve.
 Todos los chicos exclamaban a la vez, reventando de risa:
-—Ja!
+-Ja!
 Ja!
 Ja!
 Ja!
@@ -271,136 +271,136 @@ Los movió y se movían.
 No estaba seguro si vivieron muchos días o murieron pronto.
 Grieve, de todos modos, quería que le creyeran lo que decía.
 En medio de las risas de todos, le dijo a uno de los Zumiga:
-—¡Claro!
+-¡Claro!
 Porque mi papá tiene mucha plata.
 Y me ha dicho que va hacer llevar a mi casa a todos los peces del mar.
 Para mí.
 Para que juegue con ellos en mi salón grande.
 El profesor dijo en alta voz:
-—¡Bueno!
+-¡Bueno!
 ¡Bueno!
 ¡Silencio!
 Grieve no se acuerda bien, seguramente.
-Porque los peces mueren cuando…Los niños añadieron en coro:
-—… se les saca del agua.
-—Eso es —dijo el profesor.
+Porque los peces mueren cuando...Los niños añadieron en coro:
+-... se les saca del agua.
+-Eso es -dijo el profesor.
 El niño flacucho y pálido dijo:
-—Porque los peces tienen sus mamás en el agua y sacándolos, se quedan sin mamás.
-—¡No, no, no!
-—dijo el profesor—.
+-Porque los peces tienen sus mamás en el agua y sacándolos, se quedan sin mamás.
+-¡No, no, no!
+-dijo el profesor-.
 Los peces mueren fuera del agua, porque no pueden respirar.
 Ellos toman el aire que hay en el agua, y cuando salen, no pueden absorber el aire que hay afuera.
-—Porque ya están como muertos —dijo un niño.
+-Porque ya están como muertos -dijo un niño.
 Humberto Grieve dijo:
-—Mi papá puede darles aire en mi casa, porque tiene bastante plata para comprar todo.
+-Mi papá puede darles aire en mi casa, porque tiene bastante plata para comprar todo.
 El chico vestido de verde dijo:
-—Mi papá también tiene plata.
-—Mi papá también —dijo otro chico.
+-Mi papá también tiene plata.
+-Mi papá también -dijo otro chico.
 Todos los niños dijeron que sus padres tenían mucho dinero.
 Paco Yunque no decía nada y estaba pensando en los peces que morían fuera del agua.
 Fariña le dijo a Paco Yunque:
-—Y tú, ¿tu papá no tiene plata?
+-Y tú, ¿tu papá no tiene plata?
 Paco Yunque reflexionó y se acordó haberle visto una vez a su mamá con unas pesetas en la mano.
 Yunque dijo a Fariña:
-—Mi mamá tiene también mucha plata.
-—¿Cuánto?
-—le preguntó Fariña.
-—Como cuatro pesetas.
+-Mi mamá tiene también mucha plata.
+-¿Cuánto?
+-le preguntó Fariña.
+-Como cuatro pesetas.
 Paco Fariña dijo al profesor en voz alta:
-—Paco Yunque dice que su mamá tiene también mucha plata.
-—¡Mentira, señor!
-—respondió Humberto Grieve—.
+-Paco Yunque dice que su mamá tiene también mucha plata.
+-¡Mentira, señor!
+-respondió Humberto Grieve-.
 Paco Yunque miente, porque su mamá es la sirviente de mi mamá y no tiene nada.
 El profesor tomó la tiza y escribió en la pizarra, dando la espalda a los niños.
 Humberto Grieve, aprovechando de que no le veía el profesor, dio un salto y le jaló de los pelos a Yunque, volviéndose a la carrera a su carpeta.
 Yunque se puso a llorar.
-—¿Qué es eso?
-—dijo el profesor, volviéndose a ver lo que pasaba.
+-¿Qué es eso?
+-dijo el profesor, volviéndose a ver lo que pasaba.
 Paco Fariña dijo:
-—Grieve le ha tirado de los pelos, señor.
-—No, señor —dijo Grieve—.
+-Grieve le ha tirado de los pelos, señor.
+-No, señor -dijo Grieve-.
 Yo no he sido.
 Yo no me he movido de mi sitio.
-—¡Bueno, bueno!
-—dijo el profesor—.
+-¡Bueno, bueno!
+-dijo el profesor-.
 ¡Silencio!
 ¡Cállese, Paco Yunque!
 ¡Silencio!
 Siguió escribiendo en la pizarra;
 y después preguntó a Grieve:
-—Si se le saca del agua, ¿qué sucede con el pez?
-—Va a vivir en mi salón —contestó Grieve.
+-Si se le saca del agua, ¿qué sucede con el pez?
+-Va a vivir en mi salón -contestó Grieve.
 Otra vez se reían de Grieve los niños.
 Este Grieve no sabía nada.
 No pensaba más que en su casa y en su salón y en su papá y en su plata.
 Siempre estaba diciendo tonterías.
-—Vamos a ver, usted, Paco Yunque —dijo el profesor—.
+-Vamos a ver, usted, Paco Yunque -dijo el profesor-.
 ¿Qué pasa con el pez, si se le saca del agua?
 Paco Yunque, medio llorando todavía por el jalón de pelos que le dio Grieve, repitió de una tirada lo que dijo el profesor:
-—Los peces mueren fuera del agua porque les falta aire.
-—¡Eso es!
-—decía el profesor—.
+-Los peces mueren fuera del agua porque les falta aire.
+-¡Eso es!
+-decía el profesor-.
 Muy bien.
 Volvió a escribir en la pizarra.
 Humberto Grieve aprovechó otra vez de que no podía verle el profesor y fue a darle un puñetazo a Paco Fariña en la boca y regresó de un salto a su carpeta.
 Fariña, en vez de llorar como Paco Yunque, dijo a grandes voces al profesor:
-—¡Señor!
+-¡Señor!
 ¡Acaba de pegarme Humberto Grieve!
-—¡Sí, señor!
+-¡Sí, señor!
 ¡Sí, señor!
-—decían todos los niños a la vez.
+-decían todos los niños a la vez.
 Una bulla tremenda había en el salón.
 El profesor dio un puñetazo en su pupitre y dijo:
-—¡Silencio!
+-¡Silencio!
 El salón se sumió en un silencio completo y cada alumno estaba en su carpeta, serio y derecho, mirando ansiosamente al profesor.
 ¡Las cosas de este Humberto Grieve!
 ¡Ya ven lo que estaba pasando por su cuenta!
 ¡Ahora habrá que ver lo que iba a hacer el profesor, que estaba colorado de cólera!
 ¡Y todo por culpa de Humberto Grieve!
-—¿Qué desorden era ese?
-—preguntó el profesor a Paco Fariña.
+-¿Qué desorden era ese?
+-preguntó el profesor a Paco Fariña.
 Paco Fariña, con los ojos brillantes de rabia, decía:
-—Humberto Grieve me ha pegado un puñetazo en la cara, sin que yo le haga nada.
-—¿Verdad, Grieve?
-—No, señor —dijo Humberto Grieve—.
+-Humberto Grieve me ha pegado un puñetazo en la cara, sin que yo le haga nada.
+-¿Verdad, Grieve?
+-No, señor -dijo Humberto Grieve-.
 Yo no le he pegado.
 El profesor miró a todos los alumnos sin saber a qué atenerse.
 ¿Quién de los dos decía la verdad?
 ¿Fariña o Grieve?
-—¿Quién lo ha visto?
-—preguntó el profesor a Fariña.
-—¡Todos, señor!
+-¿Quién lo ha visto?
+-preguntó el profesor a Fariña.
+-¡Todos, señor!
 Paco Yunque también lo ha visto.
-—¿Es verdad lo que dice Paco Fariña?
-—le preguntó el profesor a Yunque.
+-¿Es verdad lo que dice Paco Fariña?
+-le preguntó el profesor a Yunque.
 Paco Yunque miró a Humberto Grieve y no se atrevió a responder, porque si decía que sí, el niño Humberto le pegaría a la salida.
 Yunque no dijo nada y bajó cabeza.
 Fariña dijo:
-—Yunque no dice nada, señor, porque Humberto Grieve le pega, porque es su muchacho y vive en su casa.
+-Yunque no dice nada, señor, porque Humberto Grieve le pega, porque es su muchacho y vive en su casa.
 El profesor preguntó a los otros alumnos:
-—¿Quién otro ha visto lo que dice Fariña?
-—¡Yo, señor!
+-¿Quién otro ha visto lo que dice Fariña?
+-¡Yo, señor!
 ¡Yo, señor!
 ¡Yo, señor!
 El profesor volvió a preguntar a Grieve:
-—¿Entonces, es cierto, Grieve, que le ha pegado usted a Fariña?
-—¡No, señor!
+-¿Entonces, es cierto, Grieve, que le ha pegado usted a Fariña?
+-¡No, señor!
 Yo no le he pegado.
-—Cuidado con mentir, Grieve.
+-Cuidado con mentir, Grieve.
 ¡Un niño decente como usted, no debe mentir!
-—No, señor.
+-No, señor.
 Yo no le he pegado.
-—Bueno.
+-Bueno.
 Yo creo en lo que dice usted.
 Yo sé que usted no miente nunca.
 Bueno.
 Pero tenga usted mucho cuidado en adelante.
 El profesor se puso a pasear, pensativo, y todos los alumnos seguían circunspectos y derechos en sus bancos.
 Paco Fariña gruñía a media voz y como queriendo llorar:
-—No le castigan, porque su papá es rico.
+-No le castigan, porque su papá es rico.
 Le voy a decir a mi mamá.
 El profesor le oyó y se plantó enojado delante de Fariña y le dijo en alta voz:
-—¿Qué está usted diciendo?
+-¿Qué está usted diciendo?
 Humberto Grieve es un buen alumno.
 No miente nunca.
 No molesta a nadie.
@@ -414,8 +414,8 @@ Paco Yunque también.
 Los dos sabían que era Humberto Grieve quien les había pegado y que era un gran mentiroso.
 El profesor fue a la pizarra y siguió escribiendo.
 Paco Fariña le preguntaba a Paco Yunque:
-—¿Y por qué no se lo dices a tu mamá?
-—Porque si le digo a mi mamá, también me pega y la patrona se enoja.
+-¿Y por qué no se lo dices a tu mamá?
+-Porque si le digo a mi mamá, también me pega y la patrona se enoja.
 Mientras el profesor escribía en la pizarra, Humberto Grieve se puso a llenar de dibujos su cuaderno.
 Paco Yunque estaba pensando en su mamá.
 Después se acordó de la patrona y del niño Humberto.
@@ -427,8 +427,8 @@ Yunque se lo diría ahora a su mamá y si el niño Humberto le pegaba, se lo dir
 Pero el profesor no le hacía nada al niño Humberto.
 Entonces, se lo diría a Paco Fariña.
 Le preguntó a Paco Fariña:
-—¿A ti también te pega el niño Humberto?
-—¿A mí?
+-¿A ti también te pega el niño Humberto?
+-¿A mí?
 ¡Qué me va a pegar a mí!
 Le pego un puñetazo en el hocico y le hecho sangre.
 ¡Vas a ver!
@@ -481,25 +481,25 @@ Quebró ayer una bacinica en tres pedazos grandes.
 ¡Qué cosa fea era esto del patrón y del niño Humberto!
 Paco Yunque quería llorar.
 ¿A qué hora acabaría de escribir el profesor en la pizarra?
-—¡Bueno!
-—dijo el profesor, cesando de escribir—.
+-¡Bueno!
+-dijo el profesor, cesando de escribir-.
 Ahí está el ejercicio escrito.
 Ahora, todos sacan sus cuadernos y copian lo que hay en la pizarra.
 Hay que copiarlo completamente igual.
-—¿En nuestros cuadernos?
-—preguntó tímidamente Paco Yunque.
-—Sí, en sus cuadernos —le respondió el profesor—.
+-¿En nuestros cuadernos?
+-preguntó tímidamente Paco Yunque.
+-Sí, en sus cuadernos -le respondió el profesor-.
 ¿Usted sabe escribir un poco?
-—Sí, señor.
+-Sí, señor.
 Porque mi papá me enseñó en el campo.
-—Muy bien.
+-Muy bien.
 Entonces, todos a copiar.
 Los niños sacaron sus cuadernos y se pusieron a copiar el ejercicio que el profesor había escrito en la pizarra.
-—No hay que apurarse —decía el profesor—.
+-No hay que apurarse -decía el profesor-.
 Hay que escribir poco a poco, para no equivocarse.
 Humberto Grieve preguntó:
-—¿Es, señor, el ejercicio escrito de los peces?
-—Sí.
+-¿Es, señor, el ejercicio escrito de los peces?
+-Sí.
 A copiar todo el mundo.
 El salón se sumió en el silencio.
 No se oía sino el ruido de los lápices.
@@ -508,27 +508,27 @@ Humberto Grieve, en vez de copiar su ejercicio, se puso otra vez a hacer dibujos
 Lo llenó completamente de dibujos de peces, de muñecos y de cuadritos.
 En la última página dibujó estas figuras.
 Al cabo de un rato, el profesor se paró y preguntó:
-—¿Ya terminaron?
-—Ya, señor —respondieron todos a la vez.
-—Bueno —dijo el profesor—.
+-¿Ya terminaron?
+-Ya, señor -respondieron todos a la vez.
+-Bueno -dijo el profesor-.
 Pongan al pie sus nombres bien claros.
 En ese momento sonó la campana del recreo.
 Una gran algazara volvieron a hacer los niños y salieron corriendo al patio.
 Paco Yunque había copiado su ejercicio muy bien y salió al recreo con su libro, su cuaderno y su lápiz.
 Ya en el patio, vino Humberto Grieve y agarró a Paco Yunque por un brazo, diciéndole con cólera:
-—Ven a jugar al melo.
+-Ven a jugar al melo.
 Lo echó de un empellón al medio y le hizo derribar su libro, su cuaderno y su lápiz.
 Yunque hacía lo que le ordenaba Grieve, pero estaba colorado y avergonzado de que los otros niños viesen cómo lo zarandeaba el niño Humberto.
 Yunque quería llorar.
 Paco Fariña, los dos Zumiga y otros niños rodeaban a Humberto Grieve y a Paco Yunque.
 El niño flacucho y pálido recogió el libro, el cuaderno y el lápiz de Yunque, pero Humberto Grieve se los quitó a la fuerza, diciéndole:
-—¡Déjalos!
+-¡Déjalos!
 ¡No te metas!
 Porque Paco Yunque es mi muchacho.
 Humberto Grieve llevó al salón de clases las cosas de Paco Yunque y se las guardó en su carpeta.
 Después, volvió al patio a jugar con Paco Yunque.
 Le cogió del pescuezo y le hizo doblar la cintura y ponerse en cuatro manos.
-—Estáte quieto así —le ordenó imperiosamente—.
+-Estáte quieto así -le ordenó imperiosamente-.
 No te muevas hasta que yo te diga.
 Humberto Grieve se retiró a cierta distancia y desde allí vino corriendo y dio un salto sobre Paco Yunque, apoyando las manos sobre sus espaldas y dándole una patada feroz en las posaderas.
 Volvió a retirarse y volvió a saltar sobre Paco Yunque, dándole otra patada.
@@ -537,19 +537,19 @@ Le dio como veinte saltos y veinte patadas.
 De repente se oyó un llanto.
 Era Yunque que estaba llorando de las fuertes patadas del niño Humberto.
 Entonces salió Paco Fariña del ruedo formado por los otros niños y se plantó ante Grieve, diciéndole:
-—¡No!
+-¡No!
 ¡No te dejo que saltes sobre Paco Yunque!
 Humberto Grieve le respondió amenazándole:
-—¡Oye!
+-¡Oye!
 ¡Oye!
 ¡Paco Fariña!
 ¡Paco Fariña!
 ¡Te voy a dar un puñetazo!
 Pero Fariña no se movía y estaba tieso delante de Grieve y le decía:
-—¡Porque es tu muchacho, le pegas y lo saltas y lo haces llorar!
+-¡Porque es tu muchacho, le pegas y lo saltas y lo haces llorar!
 ¡Sáltalo y verás!
 Los dos hermanos Zumiga abrazaban a Paco Yunque y le decían que ya no llorase y le consolaban, diciéndole:
-—¿Por qué te dejas saltar así y dar de patadas?
+-¿Por qué te dejas saltar así y dar de patadas?
 ¡Pégale!
 ¡Sáltalo tú también!
 ¿Por qué te dejas?
@@ -569,7 +569,7 @@ A Paco Yunque lo llevaron por los brazos los dos hermanos Zumiga.
 Una gran gritería había en el salón del primer año, cuando entró el profesor.
 Todos se callaron.
 El profesor miró a todos muy serio y dijo como un militar:
-—¡Siéntense!
+-¡Siéntense!
 Un traqueteo de carpetas y todos los alumnos estaban ya sentados.
 Entonces el profesor se sentó en su pupitre y llamó por lista a los niños para que le entregasen en sus cuartillas con los ejercicios escritos sobre el tema de los peces.
 A medida que el profesor recibía las hojas de los cuadernos, las iba leyendo y escribía las notas en unos libros.
@@ -579,38 +579,37 @@ Cuando el profesor dijo:
 “Humberto Grieve”, Grieve fue y presentó el ejercicio de Paco Yunque, como si fuese suyo.
 Y cuando el profesor dijo:
 “Paco Yunque”, Yunque se puso a buscar en su cuaderno la hoja en que escribió su ejercicio y no la encontró.
-—¿La ha perdido usted —le preguntó el profesor— o no la ha hecho usted?
+-¿La ha perdido usted -le preguntó el profesor- o no la ha hecho usted?
 Pero Paco Yunque no sabía lo que se había hecho la hoja de su cuaderno y, muy avergonzado, se quedó en silencio y bajó la frente.
-—Bueno —dijo el profesor, y anotó en unos libros la falta de Paco Yunque.
+-Bueno -dijo el profesor, y anotó en unos libros la falta de Paco Yunque.
 Después siguieron los demás entregando sus ejercicios.
 Cuando el profesor acabó de verlos todos, entró de repente al salón el Director del Colegio.
 El profesor y los niños se pusieron de pie respetuosamente.
 El Director miró como enojado a los alumnos y dijo en voz alta:
-—¡Siéntense!
+-¡Siéntense!
 El Director le preguntó al profesor:
-—¿Ya sabe usted quién es el mejor alumno de su año?
+-¿Ya sabe usted quién es el mejor alumno de su año?
 ¿Han hecho el ejercicio semanal para calificarlos?
-—Sí, señor Director —dijo el profesor—.
+-Sí, señor Director -dijo el profesor-.
 Acaban de hacerlo.
 La nota más alta la ha obtenido Humberto Grieve.
-—¿Dónde está su ejercicio?
-—Aquí está, señor Director.
+-¿Dónde está su ejercicio?
+-Aquí está, señor Director.
 El profesor buscó entre todas las hojas de los alumnos y encontró el ejercicio firmado por Humberto Grieve.
 Se lo dio al Director, que se quedó viendo largo rato la cuartilla.
-—Muy bien —dijo el Director, contento.
+-Muy bien -dijo el Director, contento.
 Subió al pupitre y miró severamente a los alumnos.
 Después les dijo con su voz un poco ronca pero enérgica:
-—De todos los ejercicios que ustedes han hecho ahora, el mejor es de Humberto Grieve.
+-De todos los ejercicios que ustedes han hecho ahora, el mejor es de Humberto Grieve.
 Así es que el nombre de este niño va a ser inscrito en el Cuadro de Honor de esta semana, como el mejor alumno del primer año.
-Salga afuera Humberto Grieve.
-Todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
+Salga afuera Humberto Grieve, todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
 El Director le dio la mano, diciéndole:
-—Muy bien, Humberto Grieve.
+-Muy bien, Humberto Grieve.
 Lo felicito.
 Así deben ser los niños.
 Muy bien.
 Se volvió el Director a los demás alumnos y les dijo:
-—Todos ustedes deben hacer lo mismo que Humberto Grieve.
+-Todos ustedes deben hacer lo mismo que Humberto Grieve.
 Deben ser buenos alumnos como él.
 Deben estudiar y ser aplicados como él.
 Deben ser serios, formales y buenos niños como él.
@@ -630,28 +629,28 @@ Todos los alumnos estaban pensativos y miraban a Humberto Grieve con admiración
 ¡Humberto Grieve, el mejor de todos los del primer año!
 El Director se despidió del profesor, hizo una venia a los alumnos, que se pararon para despedirlo, y salió.
 El profesor dijo después:
-—¡Siéntense!
+-¡Siéntense!
 Un traqueteo de carpetas y todos los niños estaban ya sentados.
 El profesor ordenó a Grieve:
-—Váyase a su asiento.
+-Váyase a su asiento.
 Humberto Grieve, muy alegre, volvió a su carpeta.
 Al pasar junto a Paco Fariña, le echó la lengua.
 El profesor subió a su pupitre y se puso a escribir en unos libros.
 Paco Fariña le dijo en voz baja a Paco Yunque:
-—Mira al señor, que está poniendo tu nombre en su libro, porque no has presentado tu ejercicio.
+-Mira al señor, que está poniendo tu nombre en su libro, porque no has presentado tu ejercicio.
 ¡Mírale!
 Te van a dejar ahora recluso y no vas a ir a tu casa.
 ¿Por qué has roto tu cuaderno?
 ¿Dónde lo pusiste?
 Paco Yunque no contestaba nada y estaba con la cabeza agachada.
-—¡Anda!
-—le volvió a decir Paco Fariña—.
+-¡Anda!
+-le volvió a decir Paco Fariña-.
 ¡Contesta!
 ¿Por qué no contestas?
 ¿Dónde has dejado tu ejercicio?
 Paco Fariña se agachó a mirar la cara de Paco Yunque y le vio que estaba llorando.
 Entonces lo consoló, diciéndole:
-—¡Déjalo!
+-¡Déjalo!
 ¡No llores!
 ¡Déjalo!
 ¡No tengas pena!

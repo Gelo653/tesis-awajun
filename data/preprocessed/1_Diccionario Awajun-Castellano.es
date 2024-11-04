@@ -215,13 +215,13 @@ No he podido hablar porque me he guardado
 Aunque quisiera visitar no puedo porque me da un recelo
 La mujercita es intrépida ante sus adversarios
 Respeto en el trabajo
-Res-peto para ingresar a una casa
+Respeto para ingresar a una casa
 Respeto a la multitud
 El señor Shawag es tímido
 Se pide con valentía si estas que te mueres de hambre
 Tener recelo al apu
 Tener respeto a la madre
-Se han reunido personas res-petables
+Se han reunido personas respetables
 Desconfiar de una mala persona
 Al anciano hay que mirarlo con respeto
 Al padre y a la madre se le conversa con respeto
@@ -270,7 +270,7 @@ Echale agua a la olla para cocinar la yuca
 Calienta el agua y échala en la tinaja para diluir el masato
 Para preparar la pintura facial de quinilla se agrega el achiote
 Las cosas son viejas
-Los problemas ya son inme-moriables porque ya pasaron antes
+Los problemas ya son inmemoriables porque ya pasaron antes
 Viejito, muy usadito
 Mi pampanilla esta muy viejita
 El problema que están comentando es muy antiguo
@@ -443,7 +443,7 @@ La expresión de mi tío es incomprensible
 Luna llena
 Señor que hace comprender sobre la vida a través de ejemplos
 Criticar
-Hacerle oír y com-prender a un desobediente
+Hacerle oír y comprender a un desobediente
 Los tumbos bien cargados estaban por sentarse en el suelo
 Poner o prestar atención
 No hagas tanta bulla que me vas a romper el tímpano
@@ -456,7 +456,7 @@ Papinum agaja anujámu
 Parchar la canoa rota
 En la tinaja nueva, mi mamá ha almacenado la masa de masato
 Atracó para recoger a su hijo
-Vestía ropa par-chada
+Vestía ropa parchada
 Arreglaron el puerto
 El puerto de Urakusa se había derrumbado
 Mi abuelo fue maltratado por los mestizos
@@ -757,7 +757,7 @@ Mina buitsjuig nijamchik béte pujume
 Cocinaron la sal y se la repartieron en cantidades iguales
 Me dieron completo el dinero
 La viga para la casa está desigual
-Es incom-pleto lo que me diste
+Es incompleto lo que me diste
 El mensaje no es igual tal como lo he dicho
 Corté el palo igualito
 Ha cantado bien parecido al tucán
@@ -882,7 +882,7 @@ Idioma awajún
 Culpable del problema
 Cumplir la ley o el reglamento
 Lo estoy defendiendo porque le quieren pegar
-Defensor de algún pro-blema
+Defensor de algún problema
 El señor Majianu es un buen orador
 Las fibras de tamshi son muy delgadas
 Mi papá habla con mi tío
@@ -988,7 +988,7 @@ Dispersa el maíz para que se seque bien
 Este poquito de comida distribúyanse
 Anuncien el comunicado
 El niño está mordiendo el cuero de venado para comer
-Las víbo-ras de la altura viven en las cuevas
+Las víboras de la altura viven en las cuevas
 La brisa está bien
 He sembrado yuca dapiím en mi chacra
 Mi hermano dobla las hojas de palmiche para techar
@@ -1048,7 +1048,7 @@ Supe sobre la predicción de los problemas que van a acontecer
 El enemigo espía mientras va paseando
 Tengo un sitio donde puedo trabajar
 He descubierto la cueva de los huacharos
-Los profesionales demuestran sus conoci-mientos ante el público
+Los profesionales demuestran sus conocimientos ante el público
 El palo que sirve para medir
 Está pesando el maíz
 Las estrellas son incontables
@@ -1310,7 +1310,7 @@ Me mordí la lengua
 La pava no se aleja de su nido
 Mi madre y mi padre son separados
 Separar a la mujer de su marido
-Hay muchas mujeres aban-donadas
+Hay muchas mujeres abandonadas
 A su mujer la hace avergonzar en la visita
 El camote asado es rico
 Tsapik habla en contra de su hermano
@@ -1404,7 +1404,7 @@ Estoy muy tranquilo
 Está muy avejentada mi cobija
 Cuando el jefe no cumple un acuerdo con los padres de familia, pierde su prestigio
 Eligieron a un jefe insignificante
-El pro- blema era sencillo
+El problema era sencillo
 Tanto han comprado
 El niño sigue igual de enfermo
 Hay un niño loco andando
@@ -1441,7 +1441,7 @@ Mandar o llevar a un enfermo al médico o curandero
 A mi abuelo lo han llevado al médico
 Se fue a dar un contrato
 Un criminal manda matar a alguien
-En nuestro pueblo necesita-mos una buena posta médica
+En nuestro pueblo necesitamos una buena posta médica
 Hizo emborrachar a su hermano invitándole pijuayo preparado
 Ahora hiciste más grande la pininga
 La gallina enana es de cuerpo más grande
@@ -1727,7 +1727,7 @@ Le tengo mucha confianza
 Joven mañoso
 El tucancillo en canga es rico
 Mi cabello sucio lo lavé con cocona y quedó limpio
-Fácilmente se puede ter-minar
+Fácilmente se puede terminar
 Mi padre es bien noble
 Etsa le dijo a la zarigüeya que matara al chancho y él respondió que lo veía hábil y le era difícil hacerlo
 Fácil, posible de hacer
@@ -1879,7 +1879,7 @@ El majás cayó al agua y desapareció
 Ha faltado a su trabajo
 Ha fracasado en sus negocios
 Vino demorando mucho
-Desa- pareció por fallecimiento
+Desapareció por fallecimiento
 Heder, apestar
 Apesta el pescado podrido
 Variedad de plátano isleño tupido y blanco
@@ -1992,7 +1992,7 @@ Estoy enredada tratando de ordenar
 Le pegaron en grupo
 Estamos hablando acerca de Suwa
 La abuela recuerda a su hijo
-Las personas sabias siempre son recor-dadas
+Las personas sabias siempre son recordadas
 Tiene fractura en la costilla
 Está sentado cerca al fuego de costado para calentarse
 Mira las estrellas hacia arriba
@@ -2045,12 +2045,12 @@ Se durmió echado en la tabla
 Llegaron nuestros parientes
 Siéntate en el piso emponado
 Si no es familiar, no le hables
-La víbora perro es perse-guidora
+La víbora perro es perseguidora
 Se fue persiguiendo al tapir
 Perdió el brazalete
 El gallo está montando a la gallina
 Deja encima de la tabla
-Rápidamente se emba-razó otra vez
+Rápidamente se embarazó otra vez
 Han robado el pate de mi abuela
 Ganso
 No vendes zapote
@@ -2073,7 +2073,7 @@ Mecer o sacudir la hamaca, menear
 Mover
 El Señor Sanchum preparó resina de caraña
 El señor Shajian embadurnó a su nueva cerbatana
-El chari-chuelo ha madurado bien
+El charichuelo ha madurado bien
 En el tambo hubo ahumaderos de animales cazados
 Vendió bastante carne ahumada
 Pescó bastante pescado y eso estaba por ahumar
@@ -2164,7 +2164,7 @@ El niño está seco después de bañarse en la cocha
 No tomes agua de lluvia
 Escuchas que la lluvia está sonando
 Por qué comes sin sal
-Fue a traer una canoa y se desa-pareció
+Fue a traer una canoa y se desapareció
 No se puede cazar en la estación de sakamtín
 Pasar la comida
 El suber de la topa no es pesado
@@ -2483,7 +2483,7 @@ Ha cutipado a su hija
 Hirió con veneno a la perdiz y la desvaneció
 Está débil
 Discutieron mucho
-La bru-jería es peligrosa
+La brujería es peligrosa
 El tunchim come cucaracha
 No llegué pronto porque había muchas curvas
 Estoy en la curva
@@ -2883,7 +2883,7 @@ Vino bien enflaquecido
 Vendré pronto
 Mi hermano come con paciencia los pescados
 No tengo paciencia
-Habla con pa-ciencia
+Habla con paciencia
 Mujer coqueta
 Enloquecer
 Se fue apurado
@@ -3020,12 +3020,12 @@ Se lastimó la cara con espina
 Muchos pájaros están comiendo los frutos de la planta trepadora
 Siempre he querido conocer al tucán
 Tengo heridas en la nuca
-Mués- trame la nuca para buscarte isango
+Muéstrame la nuca para buscarte isango
 Mi esposo murió por la mordedura del cascabel
 Voy con mi hermano a jugar a la pelota
 Ayer por la tarde
 Quise matar al ave que estaba cantando pero no lo pude ubicar y lo dejé
-Jugue-mos con las flores de la planta
+Juguemos con las flores de la planta
 Antiguamente la luna era persona
 Yawa ayujata
 Está descansando porque se cansó trabajando en la chacra
@@ -3107,7 +3107,7 @@ Se acerca la época de sequía
 Fue a ver la sepultura
 Aquí nunca llueve
 Me picó la isula
-Vendo pata-rashca de bagre
+Vendo patarashca de bagre
 Aplastarse por sí solo
 Se aplastó tumbando el árbol
 Namak abauji pakan utuamu

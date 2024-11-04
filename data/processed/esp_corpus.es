@@ -1,5096 +1,3 @@
-ANALISIS GRAMATICAL DE LA LENGUA AWAJUN
-Pero
-Entonces
-Sin embargo
-Como
-Como
-Y
-Así mismo
-Cuando
-Cuando
-Mientras
-Luego
-Después
-Después
-Hasta
-Hasta
-Yo estoy
-Yo estaba
-Yo estaré
-Tú estas
-Tú estabas
-Tú estarás
-Él esta
-Él estaba
-Él estará
-Aqui
-Aqui
-Hay
-allí
-Alla
-Cerca
-Lejos
-Dentro
-Abajo
-Encima
-Debajo
-El pijuayo está muy cargado de frutos.
-El zancudo pica al niño.
-En mi casa tengo un loro.
-Mi padre lee un libro.
-En mi casa hay una telaraña.
-Mi hermano hizo una lanza de pona.
-Mi ropa está muy usada.
-Mi papá se pone el cinturón.
-El gallo canta al mediodía.
-La víbora mordió a miperro.
-picaflor
-ardilla
-maní
-botella
-cangrejo
-cacao
-pluma
-lechuga
-balsa
-aguaje
-corazón
-abeja
-erizo
-aguja
-flor
-perro
-estrella
-yo
-Tú
-usted
-Él
-Ella
-Aquel
-Aquella
-tigre
-hormiga
-víbora
-árbol
-caracol
-papaya
-papagayo
-gallina
-arete
-frijol
-gallo
-perdíz
-lanza
-zapote
-lapicero
-zancudo
-niño
-zorro
-Paujíl
-venado
-leña
-rata
-cocona
-carpintero
-mariposa
-guacamayo
-sajino
-mono
-paloma
-rana
-Bujurqui
-canoa
-SOY BILINGÜE
-Soy bilingüe y estoy orgulloso de serlo,
-Llevo en mi mente y en mi corazón,
-Que soy bilingüe.
-Yo soy bilingüe y no lo niego,
-Me identifico en cualquier lugar,
-Soy igual a todas las personas.
-Yo soy bilingüe,
-Y no me avergüenzo,
-Mi anhelo grande como el río,
-Es ser profesional bilingüe.
-Joven bilingüe,
-Demuestra ante el mundo
-Que, en el surcado río,
-Entre pongos y rocas
-Cerros y árboles.
-¡Tú puedes avanzar!
-DEFENSORIA DEL PU EBLO: ERES DEL PU EBLO
-Defensoría del Pueblo
-naciste buscando justicia y paz,
-con la fortaleza de la persuasión
-luchando por los derechos
-de la población.
-Tu ímpetu de servicio
-vocación sin igual,
-llegando donde nadie más acudirá
-defendiendo derechos de la población
-de acuerdo con Ley y Constitución.
-Caminando siempre
-con rumbos firmes
-dejando huellas indelebles
-y forjando valores
-en la vida de los recurrentes.
-Defensoría, Defensoría
-Defensoría del Pueblo
-eres del pueblo.
-La Panamazonía está formada por territorios históricamente construidos por la Naturaleza y por los pueblos originarios, comunidades locales, ribereñas, campesinas y otras quienes hemos fecundado nuestros sentidos de vida en estas realidades e imaginarios.
-Un sentido de territorialidad basado en relaciones de respeto e integración con el tejido amazónico en todas sus dimensiones, no sólo material, sino espiritual, cultural y de uso;
-todas ellas en disputa histórica desde la violenta llegada de sociedades y visiones colonialistas, expoliadoras y mercantilistas.
-Esta disputa se enmarca dentro del despliegue del sistema capitalista y el modelo de desarrollo depredador, patriarcal y racista, instaurado desde la imposición del colonialismo generador de desigualdades en todas sus formas.
-El desarrollo de este sistema, acompañado de los diversos fundamentalismos, está incidiendo en el retroceso de la vigencia de los derechos de los pueblos, especialmente los alcanzados por las mujeres.
-Muy a pesar de ello, los pueblos amazónicos y andinos resistimos y pervivimos con el indeclinable compromiso de defender la vida en nuestros territorios.
-Por eso, los pueblos de los nueve países de la cuenca amazónica, tomando la posta de Macapá, reunidos en Tarapoto-Perú, junto a hermanas y hermanos de otras latitudes acudimos al llamado de la Amazonía y sus pueblos, convocados por el VIII Foro Social Panamazónico.
-El modelo civilizatorio capitalista, se expresa actualmente en el desarrollo extractivista y de “economía verde”.
-Este es implementado a través de empresas transnacionales y nacionales amparados por los Estados de la Panamazonía que dejan de lado su papel de garante de los derechos de los pueblos y la Naturaleza, poniendo en serio peligro la sostenibilidad de los territorios, la soberanía alimentaria, aumentando nuestra vulnerabilidad frente a los impactos del cambio climático y provocando graves cambios socioculturales en la Naturaleza y la vida de los pueblos.
-En este escenario se limita cada vez más la soberanía y autodeterminación y los derechos son menos reconocidos y más violentados.
-Tal como viene sucediendo con la consulta previa libre e informada, cuya aplicación se está convirtiendo en un procedimiento administrativo, cuando sabemos que debe basarse en el respeto a los derechos de los pueblos, los estándares ambientales y el diálogo intercultural.
-Además los poderes legislativos de los países de la Panamazonía aprueban leyes que atentan contra la espiritualidad y los derechos de los pueblos, en especial contra el derecho de las mujeres a la autonomía y de sus cuerpos.
-Frente a ello, los pueblos amazónicos y andinos continuamos resistiendo y movilizándonos para transformar las sociedades y los Estados, cuestionando el modelo de desarrollo extractivista y afirmando nuevos paradigmas basados en propuestas como la Vida Plena, el Buen Vivir, Vivir Bien y el autogobierno territorial.
-La respuesta de los Estados es la criminalización de la protesta social para debilitar a las organizaciones indígenas, de mujeres, movimientos sociales e instituciones de la sociedad civil y profundizar su modelo y su alianza con las empresas petroleras, mineras, madereras, agroindustriales y de megaproyectos hidroeléctricos.
-Ante este contexto, el VIII Foro Social Panamazónico plantea fortalecer la alianza, articulación y movilización de los pueblos amazónicos y andinos basada en el respeto a la Naturaleza, el territorio y la vida.
-Por lo tanto, las propuestas recogidas en el Foro se presentan a continuación:
-Construir nuevos paradigmas a partir de las propuestas de Vida Plena, Buen Vivir, Vivir Bien, Autogobiernos territoriales etc. que levantan, entre otros, los pueblos originarios amazónicos y andinos.
-Exigir a los Estados que las políticas y normas nacionales se adecuen a las leyes internacionales sobre derechos de los pueblos indígenas amazónicos y andinos.
-Denunciar y luchar contra la corrupción relacionada con el modelo extractivista y los megaproyectos de infraestructura y explotación en la Amazonía y el Ande.
-Fortalecer la articulación y la unidad de las organizaciones sociales, indígenas amazónicas y andinas, de mujeres, afroamazónicos, comunidades LGTBIQ, académicos, organizaciones de jóvenes, adolescentes, niñas y niños y otros movimientos sociales.
-Exigir el reconocimiento de los derechos colectivos de los territorios comunales y territorios integrales a partir de la diversidad territorial y de los escenarios que existen en la Panamazonía valorando saberes, conocimientos y prácticas de los pueblos.
-Reconocer y fortalecer las identidades Amazónicas y Andinas, producto de un rico y complejo intercambio que ha dado lugar al fortalecimiento de las culturas de nuestros pueblos.
-Exigir que se detenga la implementación de falsas soluciones a la crisis climática en la Panamazonía, como la llamada “economía verde” y la financiarización de la Naturaleza, las cuales conllevan la desterritorialización, entre otros impactos negativos.
-Exigimos un ordenamiento territorial que se base en el respeto de nuestra cosmovisión, las fuentes de agua y formas de entender nuestro territorio.
-Exigir a los Estados que garanticen el derecho de los pueblos amazónicos y andinos a la comunicación democratizando de manera efectiva los medios y tecnologías.
-Exigimos el fin de todo tipo de violencia contra las mujeres tanto en las comunidades como fuera de ellas, en especial contra las mujeres defensoras de derechos.
-Las mujeres exigimos que los Estados se aparten de los preceptos religiosos a la hora de aprobar leyes y decidir las políticas públicas que afectan nuestros derechos, nuestros cuerpos y territorios y que se rijan por estándares internacionales de derechos humanos y laicidad.
-El Foro Social Panamazónico adopta como suyo el Tribunal de Justicia de los Derechos de las Mujeres Panamazónicas-Andinas.
-Exigimos que se reconozca y valore el trabajo que las mujeres hacemos en nuestros hogares, comunidades y organizaciones aportando a la sostenibilidad de la vida y al Producto Bruto Interno (PBI) en nuestros países.
-Nos solidarizamos con el pueblo de la llamada Guyana Francesa y rechazamos la existencia de territorios en la Panamazonía en condición de colonia.
-Defender a los pueblos en aislamiento voluntario y contacto inicial.
-Exigimos a los Estados respetar su derecho a la libre determinación, reconocerlos, demarcar y proteger sus territorios y garantizar su naturaleza transfronteriza.
-Los/as jóvenes, niños, niñas y adolescentes exigimos a los Estados el reconocimiento y respeto de los derechos ecológicos.
-Asimismo exigimos que los Estados garanticen su derecho a crecer en un entorno seguro y sano para vivir de manera plena.
-Exigimos el reconocimiento de la educación comunitaria intercultural como expresión del respeto a las culturas amazónicas y andinas y la construcción de una ciudadanía intercultural.
-Impulsar políticas públicas que aborden la gestión de la diversidad, reconociendo, valorando y aprovechando la diversidad cultural de los pueblos indígenas en las ciudades, integrando a la juventud y la niñez.
-Promover nuevas relaciones entre lo urbano – rural, campo-ciudad, generando y promoviendo el consumo responsable basado entre otros en la agricultura ecológica.
-Promover la agroforestería ecológica y la gestión sostenible de los bosques Amazónico-Andinos desde las organizaciones indígenas para la seguridad y soberanía alimentaria.
-Recuperar productos y especies nativas a través del intercambio de semillas y cultivos dentro de las comunidades, entre ellas y la población en general con la participación activa de las mujeres.
-Reivindicar y fortalecer las identidades de los pueblos amazónicos y andinos, recuperando el uso de las lenguas originarias.
-Incorporar a los sabios(as) ancianos(as) como fuente de saberes acumulados históricamente que orientan y defienden la identidad de los pueblos amazónicos y andinos.
-Impulsar la vigilancia y monitoreo ambiental participativo desde las organizaciones locales para prevenir la afectación de derechos y el incremento de los conflictos que genera el extractivismo.
-Acudir a la justicia internacional para buscar sanciones contra empresas multinacionales violadoras de derechos.
-Proponer e impulsar instrumentos políticos para ello.
-El FOSPA se solidariza con los pueblos afectados por las guerras, la intervención de sus territorios y la criminalización de la protesta de los defensores/as de derechos que les obliga a abandonar sus territorios.
-Los pueblos amazónicos y andinos reunidos en el VIII FOSPA reafirmamos nuestro compromiso con la vida y la Naturaleza, convocando a construir y fortalecer una gran alianza de los pueblos 4 basada en el reconocimiento y respeto de nuestra diversidad y convicciones pero también de nuestros disensos.
-Siguiendo el camino trazado por los Foros Sociales Panamazónicos, el llamado a la lucha y la resistencia continúa.
-Que así sea
-Terreno en reserva
-El cercado de la casa está espaciado
-Shawit ha quedado marginado
-Abran espacio en el camino para que el anciano pase
-El chico que iba a ingresar ha quedado excluído
-Yo estudio por la tarde
-La telaraña ha tapado el camino
-ujik esatne
-Nuestro antepasado fue el muun Chiwan
-Dicen que iwa fue persona
-Así le dije a mi hijo
-Porque estaba enfermo le dí medicina y le deje acostado
-Dejemos construyendo un tambo
-En mi purma tengo un tambo
-Comamos la verdura sancochada
-Él come así
-El perro ladraba por allá
-Basta es suficiente para mi
-Yo, ahí nomás, ya me llené
-Tus cosas estaban de esa forma
-Las cosas parecidas a éstas se malogran rápido
-Por qué son así los niños
-Me preocupa cuando los jóvenes cometen acto sexual prematuramente
-Esa misma persona era el que te buscaba ayer
-A mi me das eso mismo
-Por allí mismo voy a ir
-Él mismo llegó ayer
-Lo que hemos conversado así será cuñado
-Cuñado de esa manera voy a trabajar mi terreno
-La cerbatana que esté así, recostada a la pared
-Las plumas de aáu son muy lindas
-Las plumas de aáu sirven para hacer corona
-La creciente inundó la casa
-He matado al líder de la manada de sajinos con el curaré
-Tenía mucho masato pero ya se acabó
-Las plantas silvestres que han dado fruto son inacabables
-El término de la construcción de casa
-En la última parte del libro se encuentra el índice
-Usted llegó al terminar la reunión
-La piedra de afilar el machete está en su desgaste final
-Los animales silvestres están en extinción
-No sé
-Estoy buscando achám para comer con boquichico
-No sé
-Las mocahuas lavadas se dejan bocabajo
-El terreno que yo poseo le pasaré a mi hijo
-Iyash achíamu
-Los militares van ha reclutar en el verano
-Se toca la columna en donde siente dolor
-Contagiarse; alguna epidemia o alguna enfermedad
-El niño se contagió la gripe
-Se encuentra en el calabozo por violación de una menor de edad
-El asado de carachama es muy rico
-Hijita tienes que aprender a asar el pescado
-Las personas prisioneras estaban en el calobozo
-El que causó el problema era capturable
-El niño que, se quemó era intocable por el dolor
-La tinaja recién hecha no se puede tocar
-El cuero de iguana al secarse se quedó pegado en el palo
-Para no caer al abismo se agarró en el palo
-Integrándome con los profesionales voy a conseguir trabajo
-He cogido tanteando con la mano las carachamas
-He encarcelado a la persona que roba
-He atrapado la cría de un sajino
-Vamos a sacar la chonta para llevar
-Vamos a sacar el carahuasca para la pretina de la canasta
-Vamos a sacar el cogollo de la chambira para torcer  Palpar; tocar
-Yo solamente he tocado para mirar
-Yo lo clavé para que no se despegue
-Voy a abarcar toda la tierra
-Esa cosa está para uso de cualquiera
-Clávalos con el martillo
-Necesito clavo para clavar el palo
-Pega el papel roto con la goma
-Nombre de comunidad del distrito de Imaza
-Podemos sembrar aguaje si queremos comer suri
-El encargado de cuidar la casa
-Nombrado, mencionado sobrenombre, apodo
-En la reunión mencionaron su nombre
-Batsatkamu apuji atin tusa adáimau
-Mencionar a alguien sin saber su nombre
-Elegir en una asamblea a un Jefe
-Los ojos están muy cerca de la naríz
-Cuando te acercas a un animal manso no muerde
-Forzar a otro hacer el acto sexual, violación
-Existen personas que permiten cometer adulterio a sus parientes
-Ayer llegué a medianoche
-Llegaron personas para la reunión
-Hizo cargar el mitayo en la espalda de su señora
-La persona mala demuestra su personalidad e imagen negativo
-El gusano se transformó en persona y enamoró a la mujer
-El alma se presenta en forma de persona
-Considerarse extraño con sus parientes
-Mi hijo está en la etapa de la adolescencia
-Personificar
-En la historia de nuestros antepasados los animales también son personificados
-El niño ha desarrollado
-Al joven le doy un trato digno
-Hijo, no puedes ver ni dar un trato indiferente a tus parientes
-La señorita considera extraño a su pariente
-Yo adopté a un niño huérfano
-Como persona no hay que ser irrazonable
-Pamau ípattag tama yaunchmame
-Consolar al niño que llora demasiado
-He alargado la fecha de mi retorno
-El plátano está verde
-Soléen afuera el cacao
-La mujer dice, voy afuera
-El patio donde uno vive debe mantenerse bien limpio
-La carne de la doncella es muy rica
-Los niños aprenden a escribir
-Las niñas aprendieron a dibujar figuras en la mocahua
-Cumple la tarea viendo el libro de escritura
-Compra el lapicero
-El documento escrito por el profesor
-El profesor le escribe una carta a su superior
-En el cuerpo del animal hay una marca
-Cuñado salgamos afuerita para conversar
-El machete que no veía estaba hacia fuera
-No se junta con personas ajenas para que no nos enseñe malos hábitos
-Si la huairanga pica al pasar por el camino es porque nos va a ocurrir problemas de adulterio
-Espacio
-En nuestro territorio ya no hay un espacio
-Yumigmat agkán, kuchija agkántai, pegak agkántai, ekemtai agkántai
-Mi padre no está desocupado
-En mi casa no hay espacio
-La casa de mi tío esta libre
-Hay una vacante para un estudiante
-La mocahua está vacía
-Yo estoy libre
-Vivo tranquilo sin ningún problema
-Todos nosotros, no nos hemos librado de esto
-Waji jeganum, agánum utuakbau yajuaka agkan emámu
-Las cosas que habían amontonado han sido despejadas
-Ocupado
-El asiento no está libre
-Mi hermano está impedido por desobedecer a mi padre
-Tengo una hija soltera
-Limpiemos el patio para despejarlo de basura
-Liberemos a la persona detenida
-Rocemos para librar la espesura del bosque
-En otros lugares no hay árboles todo es desierto
-No hay espacio para poner la cama
-Mi casa es muy espaciosa
-Me voy a librar si soluciono el problema
-Si tu viajas vas a desaparecer
-Si dejas el lugar donde estás vas a desaparecer
-Si al niño no se le baña bien le saldrán heridas en la cabeza
-Regresemos rápido a la casa porque mucho molesta la abeja al niño
-Relato de la cosmología awajún
-Cuñado visítame por la tarde para tomar masato
-Mi padre ha cazado las crías de armadillo
-Libra la cama para que mi cuñado pueda descansar
-Mujercita, por la tarde vamos a anzuelear
-En el alto Marañón no abunda la shapaja
-Abunda la abeja en el río porque es verano
-En el Marañón abunda la ronsapa
-Para que no quede mal hecho yo ya había anunciado
-Quién puede hacer ese trabajo que aún queda
-lávale las manos a tu hermanito
-Hazle defecar afuera a tu hermanita
-Los demás también dijeron que es posible hacer
-Los demás dijeron que se le castigue pero nuestro jefe dijo que no es necesario hacerlo
-Cuando el profesor te haga preguntas debes saber responder
-El maíz está lleno en un saco
-Mi canasta está por llenarse
-La avispa agkaína es perseguidora
-Tendido con una linda tela
-Estaba correteando a la gallina para atraparla
-Hija deja de estar pensando en casarte, aprende a trabajar
-Hay mujeres solteras en nuestra comunidad
-He criado al cotomono macho
-Varoncito has llegado
-Responder por escrito
-No me gusta contestar a mi padre
-Así sea por siempre, conjurar
-Hay que conjurar para que abunden los peces
-Que sea hasta aquí el trabajo de rozo
-Tu también que así seas
-Que seas siempre tal como eres
-Dijeron que va a haber una reunión
-Tender la cama para que duerma la criatura
-Tú, también tienes chacra nueva
-Muchachos ustedes también deben aprender a invitar
-En la chacra había ajach vamos a sacar
-La planta de uña de gato es muy buena para todas las enfermedades
-Para pedir yuca se conversa con la dueña de la chacra
-Ajáim, mató a la madre de Etsa y la devoró
-La patarashca se hizo pegajosa porque se está malogrando
-Por el camino de la chacra no se hacen los dardos
-En la chacra de mi madre
-En mi chacra abundan las plantas sembradas
-Las semillas brotaron
-He perdido las semillas de la planta que llevaba
-Hacerle enfermar al hijo por la fiebre
-La mohena ha sido tumbada por Tuyas
-Se puede aprender a prevenir la muerte de nuestros hijos
-Hermano no cortes esa planta de cedro
-Ninguna vez he perdido un hijo
-No tumbó el aguaje
-Las semillas de las plantas no servían para cultivar, por eso las he botado
-En la chacra nueva habían sembríos de las plantas
-Cuidado de ingresar en los sembríos de mi chacra nueva
-Ustedes las mujercitas también deben aprender a sembrar
-En este tiempo de verano los padres de familia están sembrando maní
-Perder un hijo o hija
-No hay que ser mezquino
-Es tiempo de abrir chacra
-Aprendan a convidar
-Invitar a los parientes
-El tucán se posaba muy lejos
-Al jefe siempre le he tenido respeto
-No he podido hablar porque me he guardado
-Aunque quisiera visitar no puedo porque me da un recelo
-La mujercita es intrépida ante sus adversarios
-Respeto en el trabajo
-Res-peto para ingresar a una casa
-Respeto a la multitud
-El señor Shawag es tímido
-Se pide con valentía si estas que te mueres de hambre
-Tener recelo al apu
-Tener respeto a la madre
-Se han reunido personas res-petables
-Desconfiar de una mala persona
-Al anciano hay que mirarlo con respeto
-Al padre y a la madre se le conversa con respeto
-Hablaste valientemente en la reunión
-Yo recogí lo que estaba botado
-Mujer abandonada
-Lo echaron de la casa
-Corta y bótalo
-Expirar
-Ya expiró, ya murió
-Las cosas de su marido las tiró para botarlas
-El susto del niño se lo quitaron con el icaro
-Estas cosas que ves son botadas
-A mi hija le hice separar
-Dice que le invitaron a Tama y se fueron llevando la canoa que la hicieron perder en el pongo
-Lo han botado desde hace tiempo
-La canoa está bien rota
-La persona estaba bien en desgracia
-Me toca la siembra de yuca
-Me toca la tumba de árboles
-El armadillo tierno en patarashca es muy pegajoso
-El árbol de ajátsjats abunda en el monte alto
-Mi chacra está hecha en una pendiente
-Arrojó en la parte de abajo
-Así es la vida, por eso no se habla sin saber
-Dame el jengibre para la gripe
-Las tripas de armadillo las arrojó al río
-Estacas prendidas para medir el terreno
-La mujer cuando está de cólera tira las cosas
-Jóven atízame esta leña, por favor
-La avispa le picó al muchacho en el pene
-Joven ayúdame aquí por favor
-Kanu awamu dupanti dekapamu numi baseja ajinmau
-Para medir el terreno han ido plantando palos
-Etsa con el conjuro se llenó de niguas en su pie y como esperar a su mujer fue sacando las niguas
-A mí hijo, lo tumbé de la cama y lo levanté
-Más luego voy a vistarte a tu casa
-Algún día tendré que regresar a mi tierra
-Nunca me olvidaré
-Nunca podré perdonar
-Kusui
-Las gallinas crecen bien en la isla
-El bujurqui se pesca con el anzuelo
-Verter, echar agua en la olla para cocinarla
-Echale agua a la olla para cocinar la yuca
-Calienta el agua y échala en la tinaja para diluir el masato
-Para preparar la pintura facial de quinilla se agrega el achiote
-Las cosas son viejas
-Los problemas ya son inme-moriables porque ya pasaron antes
-Viejito, muy usadito
-Mi pampanilla esta muy viejita
-El problema que están comentando es muy antiguo
-Seguir el camino para la toma de alucinógenos para que el espíritu poderoso, sobrenatural de los ancestros nos transmita la visión
-Cosmología awajún
-Los awajun tenemos visiones
-Nosotros tenemos quien nos ayude a redactar documentos
-El perro se engusanó donde el achuni lo mordió
-Con el bambú me he cortado la mano derecha
-El niño para tomar la leche se ha colgado en el seno de su madre
-El gigante Iwa le jalaba de la cintura al mono blanco para arrancarlo
-Mi abuelo hace cinta para la correa
-Ceñirse bien la pampanilla con la cinta de amarrar
-A su hijo lo ha castigado con la correa
-Amárrale bien la sonaja en la cadera
-En caso de perderse, se sale siguiendo la bajada de la quebrada
-Me voy río abajo
-El niño al resbalarse se ha dislocado
-Ponerse el sol
-El sol se está poniendo, y me preocupa cómo estarán los niños
-El abdomen del majás ya está cocinado
-Traeme rodando la leña
-He visto la masa de masato almacenada en una tinaja
-Es la culata de la escopeta
-Jalando hicieron caer las calabazas que estaban en la canasta
-Los peces que pescó se dividieron
-Nos vamos a dividir la carne
-Repártanse las frutas
-Para tejer la pampanilla ha preparado la urdiembre
-El dormitorio está dividido
-El número de serie del motor
-Parte separada de un grupo de objetos o personas
-Está separado el arroz que se va a vender y, lo que no se va a vender
-El hígado de sajino ahumado es bien rico
-En la planta de mi pie me he pinchado con una espina
-El niño se ha cortado en la palma de su mano
-Mi cuñada cela a su esposo
-Celar a la mujer
-La gallina protege a sus polluelos
-El señor mira en forma vigilante
-Hay una máquina reservada
-El señor Yuma habló en defensa de su hijo cuando lo quisieron detener
-El señor Kayas cela demasiado a su mujer
-Hay una despedida al jefe de la educación
-El tío se despide de su cuñado
-Le encarga el mensaje a su hermano porque regresa a su tierra
-El muchacho cometió una falta y su tío lo ha aconsejado
-Dice que mandó mensaje para enamorar a la mujer
-El señor Samekash dejó recomendando cuidar de su hijo
-Los niños lanzándose con un palo se picaron
-El boquichico que salió lo picaron con una flecha
-La cría de un perro cazador
-Habrá pago para las personas que trabajan
-Nacimiento
-No se sabe cuando nació el niño Sol
-El profesor que trabajaba ya no esta, lo ha reemplazado otro
-Las alas del escarabajo chico sirven para aretes
-Arete de las alas del escarabajo grande
-Hay un pago por cargar ripio
-Cierra la quincha del corral
-El machete está muy caro
-El pagador ha llegado a Napuruka
-La carne del monte debe tener poco precio
-Hay remuneración por el trabajo
-Pagar la deuda, la cuenta
-Compré ropa y cuando fui a pagar en la caja, no me dieron bien el vuelto
-La mujer que no podía concebir ahora ya tiene un hijo
-Le dio de tomar pastillas al niño porque estaba con diarrea
-El perro siguió una punchana y lo hizo entrar a su hueco
-En el cruce del camino voy a prender un palo
-Lo agarré pero volví a soltar al boquichico
-Enviar un documento
-Lanzar una isana
-Persona detenida y suelta
-Lo enviaron para que trabaje
-Al subir al árbol se desprendió y casi se cae
-La lanza cayó verticalmente de punta
-A los que se fueron no los he podido alcanzar
-Recuperar, alcanzar de un retrazo
-Me he puesto al día en lo que me retracé
-A los que me dejaron, los he alcanzado
-Yakí wegau amamkiu, waanum waigka amamkiu
-Encontré el camino con mucho sacrificio
-Crucé la quebrada metiéndome hasta el cuello
-Por estar saltando me he hundido en el barro
-El hombre Luna agarrandose del hilo se fué al infinito del cielo
-Que solamente a ti nomás te dé
-Dame el cuchillo para que no te cortes
-Sigue cruzando el camino
-Come tú
-Nuna nuniku asamtai, Etsa yumijauwai dutikamu asa yamaikish nejen yuuwai
-Amich y kujancham abrieron la patarashca y la comieron
-Saludo a los profesionales que llegaron
-Satisfacerle los antojos
-Abuelo, yo he venido a conversar con usted
-La planta de ampámpag se dá de tomar al perro para desparasitarlo
-Variedad de la planta silvestre más desarrollada en su tallo
-El enfermero trajo medicina solicitando a las autoridades
-Reserva, sobra
-Sobrar
-Curar a un enfermo
-Aunque trabajamos ambos no pudimos terminar nuestro trabajo
-Tomarse todo el chapo de yuca servido
-No se promete
-La soga de la canasta
-El cebo de las trampas
-Los peces son el cebo para la boa
-Por seguir al animal me caí tropezándome con una liana
-Prometer, ofrecer, empeñar la palabra
-Religión, sacrificar; diezmar
-Inocente por el robo
-Ofrecer la cabeza de un animal
-Promesa para comprar una casa
-Inculpado por robo
-Segamau
-Comprometerse para casarse
-La guaba se puede coger amarrándose los pies con una pretina de soga
-Si sientes frío caliéntate en la candela
-Antiguamente los antepasados no sabían usar el barbasco para pescar
-Por eso, los muun para pescar dicen: “Ancháu te está pescando; y los boquichico, lisa, dicen que se burlan de ti” hacen este discurso para echar barbasco y que el efecto del barbasco sea más eficaz
-Mi abuelo cuando echa barbasco siempre llama a Ancháu
-El tábano pica muy fuerte
-Está despeinado porque acaba de levantarse
-Voy a cantar un canto de mi recuerdo
-El que ha cometido el crimen vive en alerta
-Entre hermanos se deben amar
-Extraño bastante aquella comida tan rica que comimos
-Mi recordado tío vive en Bashutak
-Mi amado hermano me ha dejado
-Me ha dejado la mujer que amo
-Mi hija es muy amable y cariñosa
-Es muy difícil que la gente de ahora resucite
-Es difícil recordar todos los relatos antiguos
-Te advierto de los acuerdos tomados
-Te hago recordar el acuerdo que tenemos para ir de cacería
-Por mal parto perdió la respiración y con ajengibre la hice reaccionar
-Diich Tsawan anéntan yachai
-El muun Samik sabe icarar al perro
-El tío Samekach sabe icarar a la mujer
-Hasta donde va llegar con sus ideas
-Estoy pensando que cosa voy a escribir
-No me interrumpas estoy reflexionando
-Ya he decidido
-s
-Tengo pesar de lo que no he hablado
-No voy a cumplir mi decisión de cosechar las frutas silvestres
-Honrado, honesto
-Por mencionar a su padre lo han herido
-Al expresar mis ideas, los otros han reflexionado
-Payash no tiene interés en sí mismo como para ser autoridad
-El Iwa era bien zonzo por eso lo mataban engañando los Tseje, Tigkishap, y otros
-Los niños dementes nacen cuando se usan los medicamentos farmacéuticos sin conocimiento
-Hay ahorros para hacer la chacra
-Al jefe también le voy a dar asiento donde tu estás sentado
-Iba por el monte subiendo la cuesta para cazar
-Habilidad
-Tocar
-Tocar solo con la mano
-El niño siente mucho dolor porque le picó la izula
-Hábil en aprender
-Es obediente cuando se le aconseja
-El joven es bien obediente
-La hija es desobediente
-El niño desobediente nunca va a obedecer aunque le aconsejen
-Enterarse de las críticas de nuestro mejor amigo
-El señor Paati es escuchado y respetado cuando habla
-La señorita Suwa es muy obediente con su madre
-El profesor explica bien claro
-La expresión de mi tío es incomprensible
-Luna llena
-Señor que hace comprender sobre la vida a través de ejemplos
-Criticar
-Hacerle oír y com-prender a un desobediente
-Los tumbos bien cargados estaban por sentarse en el suelo
-Poner o prestar atención
-No hagas tanta bulla que me vas a romper el tímpano
-Me casé con mi prima, hija de la hermana de mi padre
-Ése Iwa, que va con su jicra tan grande para cargar su mitayo
-Vestir a una criatura
-Allí había
-Déjamelo ahí
-Papinum agaja anujámu
-Parchar la canoa rota
-En la tinaja nueva, mi mamá ha almacenado la masa de masato
-Atracó para recoger a su hijo
-Vestía ropa par-chada
-Arreglaron el puerto
-El puerto de Urakusa se había derrumbado
-Mi abuelo fue maltratado por los mestizos
-Los mestizos nos quieren quitar la tierra
-El pucacuro rojizo ha comido toda la patarashca
-He comprado la falda que confeccionó mi madre
-Tuyas alcanza a su padre el bejuco torciéndolo
-El señor Tsemán es como mi padre
-En forma sorpresiva llegué a la casa de mi padre
-En el Alto Marañón el apapájua aparece en la época de verano
-El cuerpo del manguaré es cilíndrico
-La mujer no quizo bailar con su marido y él a la fuerza la quería sacar
-Colocar bien las hojas alrededor del nido de la gallina
-Un señor malo había perforado la calabaza donde el niño íba a cargar el agua porque lo odiaba
-Apátka yanámu
-Lo que está separado se puede unir
-Carga juntos los dos trozos de leña
-Se casó con la hermana de su esposa
-Máquina de coser zapatos
-Mi mamá está cociendo mi camisa
-Mi papá se internó en el monte doblando las ramas de las plantas para guiarse
-Mi hijo conoce la técnica del doblado de las ramas para no perderse en el monte
-Al niño ahogado que rescataron lo han echado boca abajo
-Grande
-El director de los profesores ha llegado para supervisar
-Yampan preparó la base de la olla y la señora Takash la malogró
-Poner en el suelo la canasta
-Corta las presas más grandes del animal
-El bufeo abunda en la parte baja de la selva
-Los antepasados para dormir trancaban bien la puerta
-Porque era bien grande el árbol no he podido tumbar
-Mi papá sembró frijoles limpiando la purma
-Nuestros ancestros adquirían el pedernal a través de la visión
-Con el eslabón prende el fuego
-Dio a luz pero aún no bota la placenta
-Cobíja al niño que está con fiebre
-Me cobijé con la frazada porque sentí mucho frío
-Al niño que se vuelve dormilón se le da de tomar el zumo de tabaco
-El señor Wampush era muy espontáneo y dinámico
-No se debe castigar tanto a los niños
-Viejita vamos a sacar chonta
-Todos los niños
-Todos los peces
-Todos los animales
-Se ha accidentado al final del trabajo
-Todos juntos vamos a salir para ayudar en el trabajo de mi madre
-Terminar el rozo
-Acabar la comida compartiendo con los demás
-El agua es inacabable
-Dicen que los medicamentos enviados para el apoyo ya se han acabado
-Al final del trabajo vamos a reunirnos para conversar
-La última cría de huacharo se llama panchaji porque es flaquita
-Has venido finalmente, pero ya estamos acordando todo
-Entre varios esperaban a Tuwish, Shushui, Yagkun, Tíiju, Yukuju para salir y atacar a Ugkaju, pero de tanto esperarlos se adelantaron
-La señora Tijigkas le cuchichea a su hermana contándole sus problemas
-Cuchichear entre dos hombre o mujeres
-Se fué a sacar suris de la palmera
-Han desenterrado la tumba
-Nuevamente vas a volver a escribir
-Algún día te acordarás
-Me devolverás algún día
-Simplemente estaba ayudando a hacer un documento
-Al ver que no ha cumplido con su trabajo, le dije, que en otra oportunidad no me vuelva a pedir ayuda
-Responsable de un trabajo
-Al resbalarme he roto los huevos
-Las rocas están bien resbalosas
-Han entregado un documento para que lleve a la ciudad
-Han responsabilizado a mi hermano para solucionar el problema que hay
-Apoyo a los niños huérfanos
-Quitar el terreno cedido
-Cria de gallina
-Las piningas se lavan y se colocan volteadas en la barbacoa
-Etsa envía a Tseje para que observara cómo, Yumi construye su casa
-El perro se ha desatado
-En la reunión se ha acordado lo que vamos a hacer el próximo año
-Revelar la visión que le dió Ajútap
-Con mis compañeros voy a trabajar
-Ustedes van a comer junto con el jefe
-Cooperando en el trabajo se avanza mejor
-El diablo se arrima siempre en el ojé
-No, a mi no me des
-Coge con tus manos una porción de maní para que comas
-Por casualidad dijeron anoche que iban a pescar, pero no fueron
-Estamos en un lugar donde no hay peces
-Etsa compitió con Amich en la pesca
-Aunque sienta cólera lo aguantó
-Soporto los problemas más que otros
-La picadura de alacrán me duele insoportablemente
-El señor Chijip se considera valiente y quiere competir en la pelea
-Yo lo desafío
-Aguantar, soportar
-Puedo soportar el peso
-Se ha puesto la corona nueva
-El señor Chijiap le pone la corona a su hijo
-Mi papá hace un sombrero de tamshi
-En mi tierra no hay hojas para construir casas
-Separaron a los que peleaban
-Han destetado a la criatura
-Jalar el tamshi
-Necesito la canoa para vadear
-El pez se escapó después de estar atrapado en el anzuelo
-El bebé que esta mamando la teta no se puede separar de su madre
-Mi hermano no estará
-No existir por morir
-Yo no voy a estar en mi casa
-Que él suba y coja la guaba
-Antiguamente cambiaban la aguja por el caucho
-El cuento del venado y el motelo
-El relato de Etsa y Yumi
-Comentario
-Comentario de una noticia
-Mi hija conversa con el jovencito
-Desde niño se debe aprender a hablar
-Hay personas adultas que son muy criticonas
-El Jefe dijo que nos va a comunicar el tema de la reunión cuando todos lleguen
-Wainkamu jikattsa, juuja augmátbau
-Mi abuelo cuenta un relato sobre los antepasados
-Leer un relato de los antepasados a los niños
-El hombre Nantu se fue al cielo porque su mujer Ayaymama no le invitaba el chapo de zapallo
-El niño lee la carta que le escribió su padre
-Mi hermano ha cazado una pucacunga con la cerbatana
-Sancochar la yuca
-El agua de yuca sancochada también se toma caliente
-En mi casa había yuca recién sancochada
-Mi hijo me habla sobre la agricultura
-El niño ha quemado el abanico
-Mi tío se fue a cortar caibros con su hijo
-La víbora muerta está colgada en la base común de dos ramas
-La canasta que venía cargando mi mamá se enganchó en una rama cortada y se cayó
-Las mujeres de hoy llevan la canasta colgando en el hombro
-Para que no le pique la manta blanca abanica al bebé
-Devolver
-Sekuut molesta le ha devuelto la gallina que le regaló su hermano
-Padre, hay algo para comer
-Awajúnik nuwen buchakin najatua apega ajakui
-Parar, levantar
-Poner guardia
-Meter en el cuerpo un objeto puntiagudo
-Plantar
-Los jóvenes de hoy toman mucho aguardiente
-Hacer regresar
-Hacer regresar a los que se escapan por amorios
-El agua empozada en el hueco del árbol sirve para curar el lisiado
-Los madereros ya depredaron la caoba
-Él amenazó por cólera pero no cumplirá su palabra
-Me enteré que mi hermano fue amenazado por su cuñado para pegarle
-El señor amenazó con matar al apu cuando le quitaron el terreno
-Guarda la cobija encima del pitak
-Cavaron poco profunda la poza
-Tejer
-Mi abuelo teje la jicra
-Hijita aviva el fuego con el abanico
-Al niño lo llevó y le hizo entrar a su casa
-La polilla enseñó a hacer la canoa
-El joven tiene mucho dolor en el corte que se hizo en el pie
-Dar golpe con el palo a la culebra
-Los niños se golpearon
-Se ha fracturado porque lo abollaron con el palo
-Por trabajar en el rozo me he cortado el pie
-Lloraba golpeándose en el pecho, por la muerte de su hijo
-Los hermanitos se golpean
-Tocar el tambor en la fiesta
-Golpear al chancho con el palo
-El apu ha comisionado a mi hermano para que comunique a la gente
-Mi mujer dejó huir el añuje que habiamos agarrado
-Envié un hacha a mi suegro porque me pidió
-He recibido la encomienda enviada por mi madre
-Lo remató con el golpe en la cabeza y lo mató
-Calienta el chilcano de pescado para que no se avinagre
-El niño ha empeorado más de lo que estaba
-Desmiente bien, aunque ha cometido el adulterio
-El señor Chumap apunta para pucunear la maquisapa
-Mandar encomienda a un hermano
-Estaba por allá
-Quitar la ropa al niño cuando está sucio
-El niño molesto se quitó la ropa se quedó desnudo
-Sachapapa sancochada
-El niño que se quemó se ha pelado la piel
-No es de acá sino de allá
-, aishmagku junika tsupimakaim tichamkajam
-Los niños van a su casa porque llegó la hora de descanso
-Tsatsupig es mi mujer, la que me hace compañía
-El jovencito es mi compañía
-La limonada está demasiada dulce
-Los antepasados peleaban con ayám usada como lanza
-Los niños descansan
-Ustedes hijos, no deben traicionar a los parientes
-Tengo el derecho a defenderme
-Cuando me pegaban me he defendido
-Defendí a su hijo, porque lo castigaba demasiado
-Siendo pariente es traicionero
-Le disparé al venado que estaba de espaldas
-Las chozas o ayámtai de Shajian son numerosas en todo el cerro
-Hizo cargar la tinaja para que la lleve a la chacra
-Ha tendido la ancha cobija en la cama
-Comió bien salada su comida
-Cuando te vayas, lleva a tu sobrino
-Solamente había venta de ropa
-Se enjuaga la boca con el agua que se ha juntado de lluvia caida, para ser expresivo
-Cuando venía cayó un palo a mi lado
-No me has visto porque estaba pegado a mi madre
-Mi cuñado abrió una chacra muy cerca a la mía
-Teniendo al costado los dardos, reclama que los ha perdido
-En la cama de Ipak acostaron a Tsajuput para casarlos
-Suwa está en vísperas de dar a luz
-Se agravó el joven al que le mordió la víbora, porque le vío una mujer embarazada
-La mujer embarazada ha empeorado por ponerle enema
-Bien, ahora tu cuéntame
-El mango del hacha se ha quebrado
-El tío Ayúi danza muy bien
-Mi tío en vez de solucionar el problema de su hija lo ha complicado
-Mamai le dá de comer al pihuicho
-Nugkui le hace lavar la boca a su hermano
-El gallo, el pavo, el pato
-El guía de los gallinazos es de color blanco
-El visionario adquiere el poder del bólido de fuego
-Los niños vienen cubriéndose con hojas por la lluvia
-Se ha desinflado la pelota
-Mono machín, mono blanco, pelaje en general de color pardo intenso a pardo amarillento de aspecto fino, moderadamente largo y algo denso
-Seré breve en la conversación para irnos
-Descansemos un poco y luego nos vamos
-Al poco rato, más luego
-El niño de cólera ha desinflado la pelota con una espina
-La pelota se ha desinflado
-Las larvas depredan las hojas de yuca
-Relato awajún
-El masato está flemoso
-Toé, floripondio, planta alucinógena usada para conocer el futuro
-Chiwan está en su tambo porque tomó toé
-La vaca muchacha pone huevos en grupos
-Del cuero de la vaca se producen zapatos
-El niño se embarra jugando en el patio
-El dolor de la mordedura de jergón es como la quemazón de la candela
-Bakantáu canta dando señal de que alguien se va a enterar de alguna muerte
-Las hojas de casha vara puesta en el tijeral de la casa no deja que ingrese el murciélago
-Para cosechar la shakapa no se debe cortar el tallo sino se debe juntar con la mano
-Las cosas no eran sólo para uno
-Mi hijo está en un lugar húmedo
-El plátano bellaco está bueno para cosechar
-Músculo de la parte anterior del muslo
-Siento cansancio en mi muslo
-Tigre mitológico de la cultura jíbaro
-Tipo de rana comestible, su hábitat es la chacra, zonas deforestadas
-La especie de rana se prepara en patarashca
-Uku bakunum ugku pujugtuae
-Los horcones de mi casa están podridos
-A mí, invítame la pierna de la gallina
-Cayó en el combate
-Cuando otros estaban cazando las huanganas, fui a participar y casi me accidenté
-Por problemas ajenos me metí en líos
-Por un joven, la mujer se ha suicidado
-El joven ha caído en la guerra
-Está en peligro por el robo de otras personas
-Por algo simple, se ha metido en problemas
-Culpar en vano a cualquier persona
-Mató con bala al añuje
-Antiguamente la balata era bien cara
-Recién ha preparado los dardos
-Preparar el dardo
-Con huaca pescaron muchos peces
-Se han repartido instantáneamente las cosas
-Paujil gigante
-Dicen que el pico del paujil, antiguamente era su lampa
-Numijinak bukin ikinai
-Instrumento de tres huecos hecho del fruto de la chambira que se usa como juguete para soplar
-El perro se muere defecando sangre si come la chonta de chambira
-Un niño tranquilo difícilmente se pelea
-El oso hormiguero es manso
-Nuestro jefe es bien humilde
-Rompí la calabaza enana llena de kapok
-Sharara, Anhinga
-Quién huele tan rico, como a batút
-La gente desconocida de río arriba se ha establecido en nuestra tierra
-Todos están sentados esperando la pesca
-Este lugar está deshabitado
-Esta tierra es el lugar donde vivimos
-Los he dejado porque ya no alcanzaba traerlos
-Todas las cosas déjenlas en un solo lugar
-El señor come bien el genital del añuje
-El canero azul es muy rico asado
-Mi hermano trabaja en el rozo
-Voy a hacer rozo
-Siembra en el terreno que está desmontado
-Pescado podrido
-La herida que me hice con la cañabrava se ha infectado
-Tuvo un mal sueño, por eso, presagió su desgracia
-Persona que se comporta mal al juntarse con delincuentes
-Mi sobrino tuvo un presagio por tomar el zumo de tabaco
-Hermano, alguien ha muerto
-Tío dicen que alguien ha muerto
-Madre me he hincado con la espina
-La comida que has cocinado se ha malogrado
-Los niños de hoy se han corrompido
-Mina dukug wake besémag pujawai
-Descontento
-Está descontento porque le dije que no juegue
-Mina buitsjuig nijamchik béte pujume
-Cocinaron la sal y se la repartieron en cantidades iguales
-Me dieron completo el dinero
-La viga para la casa está desigual
-Es incom-pleto lo que me diste
-El mensaje no es igual tal como lo he dicho
-Corté el palo igualito
-Ha cantado bien parecido al tucán
-Tenía la canasta llena de frutas de chambira
-Pela bien la cocona con espinas y le das al niño
-El desembalse ha tapado la quebrada
-En la cashuera vamos a agarrar tanteando la carachama
-El cerro se ha derrumbado
-Ten cuidado, que el caldo de carne del monte no rebose
-La planta bicha sirve para poner enema a los niños
-En la comunidad de Ajachim cae granizo
-El río Buchigkis es muy frío
-Los ancianos aconsejaban que no se debe comer el maní molido porque sino ahuyentas al ajútap
-Después de bañarme me siento fresco
-Trajeron pescado congelado
-Hace mucho calor, saca al niño afuera para que se refresque
-Makichik yutai, umutai, takastin, niimpaim wajakin yuminum egkea bichátmitkamu
-Enfriar
-Al niño que está con fiebre se le baña con hierbaluisa para que le baje la fiebre
-Bajar la fiebre
-Ya me ha bajado la fiebre alta
-El frejol que sembraste no creció
-La joven toma pampa orégano porque está mestruando
-El pájaro biíshkin a través de sus formas de canto anuncia a la persona si le va a ir bien o mal en la actividad que va a desarrollar
-Mi ropa esta bien sucia
-El niño se ha ensuciado
-La ropa para el paseo debe ser limpia
-Ha venido con su ropa sucia, embarrada
-Si preparas pintura facial de violeta caspi tienes que darle una textura espesa
-Prepara puré de yuca para que coma el niño
-No brilla el sol
-Al niño que se quemó le ha calmado el dolor con la yema de huevo
-El árbol hace sombra
-Ya le calmó el dolor de la picadura de isula
-Ya me calmó la sed
-Me ha calmado el hambre
-He comido el chopé y calmé mi antojo
-Cuando los niños hacen mucha bulla, el bikua canta dando señal de malagüero porque algo va ocurrir
-Vamos a comer
-Cuando creció comenzó a predecir todo lo que veía de las personas, adulterio, la higiene, el crimen, el robo
-Bíkut jakauwai apachjai maaniamunum
-La mujer tiene como collar bísha
-El niño huérfano sabe trabajar
-La plataniza que han preparado está bien espesa y dulce
-El masato que recién han diluido está todavía espeso y dulce
-Cuando el cabello se hace grasoso da comezón
-Siéntense callados niños, para escuchar los consejos
-La casa estaba silenciosa
-,
-La bulla que tanto hacían, se ha vuelto silenciosa
-Está haciendo el telar
-La guaba no se come cuando está verde
-El señor Jempe está tejiendo un buchák
-Estoy tejiendo el vestido para mi esposa
-El hombre experto en cantar icaros le ha dedicado a la mujer, que llora inconsolablemente por amor
-En la cabecera del río Chiriaco hay bastante estalactita
-Mira su forma de caminar
-Ahora es tiempo de permanecer en casa, es tiempo de lluvia
-El horcón se puede mover porque está flojo
-Hermano no me puedo mover, estoy estable
-El motor se mueve demasiado
-Máquina paralizada que empieza a funcionar
-Cuantas veces te van a decir que reacciones
-El suri con chonta en patarashca es bien rico
-El pozo estaba bien seco
-No se le imita a la rana de la altura para que no se pudra la ropa trasera
-La leña de bukún es muy buena en arder
-Kuntinu, namaka ukunchi bukúnbau
-Fumar
-Fumar tabaco
-Chupar la caña
-Chupar la pepa
-El joven fuma el cigarro
-Una persona llegó vestida de color negro
-El cielo se ha oscurecido
-Mi vista se empaña
-Nublado
-Los ojos de manco son turbados, porque Etsa se los ha cambiado
-Cuando se toma el toé se empañan los ojos
-Estás despeinada
-El cabello de aquella mujer está desgreñado
-La persona está con la enfermedad de la uta
-El cuchillo está sin filo
-El niño tiene moco en la nariz
-Los hongos en patarashca son muy ricos
-Para aprender los icaros se tiene que absorber el zumo de tabaco por la nariz
-Vendo mota
-Tenía puesto un vestido mal confeccionado
-Tengo miedo de subir a un bote
-El rayo incendió al árbol
-Actualmente ya no tocan la guitarra o violín
-Mi mamá está vestida de colores moteados
-Vino bien mojado por la lluvia
-Cúbrele la cabeza con la tela bien empapada
-Paipainch cuando era persona malogró la canasta al tejer
-Wajukutskait
-Las heridas le dejaron marcas blanquecinas y humedecidas
-Por la cabecera de la cama de mi papá está la escopeta
-En el Marañón la charapa abundaba
-El martín pescador siempre pasa todas las mañanas río arriba
-El tío acorraló al añuje y lo mató
-Hermano báñate en el canal de pona
-Mi padre está poniendo el canal de pona para el agua
-El niño está chapoteando en el barro
-Dicen que el tigre usa el buzo o chaleco
-Alcánzame la chaqueta para ponerme
-El martín pescador cogió
-No cojan el caimito está verde
-En la puerta le han apretado los dedos al niño
-La hoja de yarina sirve para hacer la cumbrera
-La trenza para amarrar al perro está hecha de chambira
-La mujer con cabello largo, se lo está trenzando
-El jovencito está preparando el algodón quemado para hacer el fuego
-El curuwinse macho se come tostado
-Oso
-El oso abunda entre los cerros del Tambillo, Muyo y Tuntanain
-Los mudos tienen derechos
-El padre nos aconseja para que seamos razonables
-El señor Chaig aconseja al joven para que se case
-El sabio orienta para el buen vivir
-Idioma awajún
-Culpable del problema
-Cumplir la ley o el reglamento
-Lo estoy defendiendo porque le quieren pegar
-Defensor de algún pro-blema
-El señor Majianu es un buen orador
-Las fibras de tamshi son muy delgadas
-Mi papá habla con mi tío
-Juntemos chicháu para Jugar
-Locutor, animador
-Mi hermano es un buen animador
-El río Kanus no es correntoso
-Los grillos cuando eran personas mataron quemando a Iwa, y lo comieron pellizcándolo
-Mi mamá le cortó el cordón umbilical al bebé con el carrizo
-Mi cuñado Atuyap ha cazado aves
-Cazar aves
-Tipo de ave mediana de color gris y marrón
-Tipo de ave pequeña con manchas azules
-Tipo de ave pequeña gris y marrón
-Trae leña
-En mi codo me he raspado con la espina
-Vendo mochila de chambira
-La mala hierba chiwayap, es muy dura para desenraizar
-Relato de la cosmología awajún
-Variedad de hierba chíjichi que crece más alta
-Variedad de hierba más pequeña
-Chijikás tagkumamuk shiig unuimauwai
-A pesar de ser joven anda con su ropa bien sucia y endurecida
-Las niñas no deben coger las mariposas porque cuando sean grandes van a estar abriendo y cerrando las piernas mientras están sentadas
-Le ha derribado su casa porque los horcones son de chikáun
-El gavilán come ratones y culebras
-Variedad de capulí
-Variedad de capulí un poco más grande
-Es tiempo de capulí pero sólo juntémos, sin derribar la planta
-Las yucas están guardas en la canasta
-Mi mamá para visitar a sus parientes de Potro, alistó sus cosas para viajar
-En la canoa de Kasen se han embarcado muchos y se han volteado
-El asiento chimpúi de Shimapuk era bien bonito y brillante
-Al tigre se le atrapa con la trampa de chína
-El majás cayó en la trampa de china
-Variedad de arbusto aparrado que crece muy bajo
-Variedad de arbusto aparrado
-La miel de chíni es buena para curar la carnosidad
-Las golondrinas también tienen su madre
-Las mujeres que hacen collares con chaquira lo hacen en forma de golondrina
-Mi hermana servía el masato en una pininga recién decorada con el látex de copal caspi
-Hechar latex de copal caspi a las piningas
-La cria del loro choclero llora mucho
-El joven recién casado debe abastecer a su suegro con leñas partidas
-Antiguamente los jóvenes se ponían enema del zumo de tabaco de color amarillo oscuro para tener visión
-El trompetero cuida bien a las gallinas
-Iina apachjig múun Chíwan ájakui
-Me bañé y me siento despejado
-Ha calmado la lluvia
-El asiento del jefe es muy liso
-El chuchuhuási preparado con aguardiente es bueno para la gripe
-Variedad de bejuco o liana
-Las coconas que mi hermana me ha invitado son agrias
-Especie de bejuco
-Madre sirveme plátano pintón para comer
-El pájaro carpintero come gusanos
-El niño está con dolor de muela
-El colmillo de huangana es muy filudo
-Comida malograda
-En el baile han pisado a un niño en los pies
-Mi papito juntó muchas guabas silvestres
-Echate boca arriba para ponerte las gotas en los ojos
-Leña partida
-Probar para ver si está cocinado
-El joven parte la leña
-Espero al señor para conversar
-Al majaz lo matan esperándolo en su camino
-Estoy en la casa cuidando al niño
-Niño ocioso
-La mujer se enferma del útero
-Dale de tomar medicina en gotas
-Cuando se tiene pereza es difícil levantarse por la mañana
-El niño tiene pereza
-Yo no iré, no quiero
-Yo no quiero la comida
-No quiero casarme
-No quiero comer porque he comido demasiado
-Quise venir pero me desanimé
-Akintui es alegre y bromista
-El tamshi está desenredado
-Voy a estirarme, ya me cansé de estar sentado
-Endereza el fierro que está doblado
-En el Marañon existe un estirón muy largo
-Espérame en el estirón del camino
-Mi mamá se encuentra muy contenta, por eso, de alegría está cantando
-Se divierte bien alegre
-Están graciosos porque están en la fiesta
-Se puede sacar fotografía a los niños que egresan
-Ahora existen cámaras acuáticas
-El niño remeda a su tío cojo
-Dibuja en tu cuaderno
-Vamos a tomarnos fotos para sacar nuestro documento
-Canta el icaro que ha aprendido
-Cuando el fotográfo me tome las fotos voy a sacar mi documento de identidad nacional
-El imitador en la fiesta hace sus presentaciones
-Con la cámara acuática toman fotos a los seres que habitan en la profundidad
-El dibujante ha dibujado una casa
-El dibujante ha dibujado un cerro
-miel de abeja
-La miel de abeja es buena para curar la tos
-Dispersar, difundir
-Dispersa el maíz para que se seque bien
-Este poquito de comida distribúyanse
-Anuncien el comunicado
-El niño está mordiendo el cuero de venado para comer
-Las víbo-ras de la altura viven en las cuevas
-La brisa está bien
-He sembrado yuca dapiím en mi chacra
-Mi hermano dobla las hojas de palmiche para techar
-Mi padre cuando se va lejos al monte siempre dobla las ramas de las plantas para poder guiarse
-El niño cuando recién ingresa a la escuela escribe con lápiz
-El ratón roe el maní
-Desmotar el algodón o kapok
-El niño desmota el algodón
-En el tiempo de ocuera el viento va a caer fuerte
-Yo he pescado en cantidad
-Ven y aprovecha
-Yo tengo una buena cantidad
-El helecho es bueno para curar la hinchazón del cuerpo
-Senuji cruza la quebrada levantándose el vestido
-El viento ha levantado el vestido de mi abuela
-La mujer luce en el pecho el collar de la semilla de nuez silvestre
-Jempekit prepara el ayahuasca y toca el manguaré
-Dati después de bañarse está tomando toe que dejó preparando en el mate
-Samekach es pequeño, para ver se para en punta de pies
-Remover con el palo la huaca que se está chancando
-Soltero, joven, varón
-Varón acompaña a tu tío
-Si ciernes el masato bota bien la fibras de la yuca
-El niño huérfano que recogí ya está joven
-El joven no comió de vergüenza
-El hijo de mi hermana ya está joven
-Los niños son bien vergonzosos para presentarse en público
-Causar vergüenza, hacer avergonzar
-El muchacho malcriado causaba vergüenza a su padre delante de la gente
-Tama es bien grosero no tiene vergüenza
-La abuela a su nieta le aplica las hojas de Santa maría, cuando está mal del hígado
-El chico pescó varias motas
-La mujer se negó a servir el masato a los invitados y avergonzó al marido
-El Marañón está bien turbio porque ha crecido
-Con el látex de leche caspi y el achiote pintaron el recipiente
-Masticar el huito
-Masticar la flor de sacha mango
-Pata de gallina
-Pie de persona
-Pata de animales
-En los dedos del pie se ha cortado con el machete
-En el dedo pequeño del pie izquierdo le mordió la víbora
-En la trampa hecha para pata de aves cayó la perdiz
-El jefe de la hormiga soldado muerde y pica
-Mi hermano Chumpi pescó bastante boquichico con tarrafa
-Compra la ropa al niño midiéndolo
-Tiwish por sí solo se orientó para ubicarse del camino y así regresó
-Emboca para probar
-Sentir el olor mediante el olfato
-No tener suficiente conocimiento para la construcción de casas
-El jovencito no practica la filosofía del buen vivir
-Después de escuchar los problemas de amor que tuvo mi hijo con una señorita he comprendido el problema
-No se puede saber sobre el robo ocurrido en una tienda
-La señorita jugando le ha golpeado al joven en el brazo
-He reconocido a mis familiares
-Supe sobre la predicción de los problemas que van a acontecer
-El enemigo espía mientras va paseando
-Tengo un sitio donde puedo trabajar
-He descubierto la cueva de los huacharos
-Los profesionales demuestran sus conoci-mientos ante el público
-El palo que sirve para medir
-Está pesando el maíz
-Las estrellas son incontables
-Medición del terreno
-Señalar el cruce del camino
-A mi hijo también lo han considerado
-Pesar la yuca
-Vende la yuca pesándolo
-Lleva la medida para cortar la cañabrava para la quincha
-Medidor, instrumento de medición
-El tesorero nos va a pagar
-Los niños dan examen de conocimientos
-Mi sobrino es alcahuete de su hermana
-Los estudiantes, entre ellos, saben sus cosas
-Presentía los problemas que me iban a suceder
-Presentía que íba a hablar por eso me preparé por adelantado
-Presumía que vendría
-Realmente, es de verdad que habrá selección de los profesores de acuerdo a su formación
-Hermano, es cierto que hay problemas en nuestra comunidad
-De veras usted
-De veras ustedes
-Kugkuasa, apasa, dukasa wajukukita tusa dékamu
-Unuimat ajutkagtamu
-Sé manejar la canoa
-Conozco como andar en la ciudad
-Sé el nombre de mi jefe
-Primero que curen a las mujeres
-Sin saber bien ha hablado
-Por clavar en la pared me he chancado la mano
-Mi mamá chanca el maní para amasarlo
-Tayunts le ha ganado a Kigkis en el deporte
-En la competencia de la lectura ganaron las mujeres
-En la competencia del peso, Yanat venció a Wawas
-Extender una soga en la cueva de huacharo
-El plátano deformado (pegado uno a otro)
-Niño malcriado
-El pecho de la perdiz se da de comer al niño
-Me golpeé el pecho con una piedra
-He cazado la perdiz que estaba frente a mí
-El sol está esplendoroso
-Yo por eso dije que es seguro
-Él es bien sensato
-Sanchum se ha equivocado por tejer la canasta
-El niño que tartamudea
-Mi tío el que vive en Sijiak me ha invitado a pasear
-Reconciendo a mi pariente le he considerado tío
-Decía mi tío finado
-Hijita lleva lentamente a tu hermano que está enfermo
-Mirar las cosas que se venden
-Fijarse bien en una persona o cosa, tratar de conocer profundamente
-Fijarse, observar con mucha atención
-Al niño le cayó una piedra en la frente
-Por salir de noche al patio me he chocado con la pared en la frente
-Tener relaciones sexuales con una mujer querida
-El niño no puede ver al muerto
-Invisible
-El alma es invisible
-Varoncito con paciencia le das de comer a tu hermanito
-, wika juwi timajai
-Ellos pescaron más
-En ellos ha recaído el problema
-Ahora en nuestra comunidad existe la televisión
-Dar o vender a crédito, fiar
-Jintinkagtin aidau kuwashat diwimkagtug pujuinawai
-Persona que debe a alguién
-Sacar a crédito las cosas en los comerciantes
-Mi cuñado me ha garantizado para sacar a crédito la medicina
-Antiguamente, los antepasados no tenían el fuego por eso sufrieron bastante
-Antes los animales abundaban bastante
-La quebrada Kayamas está subiendo su caudal
-Dicen que la quebrada Pampaints ha crecido
-En mi nariz me dio la uta
-El pico del tucán
-La proa de la canoa se ha partido
-Cuando nos agripamos es difícil respirar y se tapan las fosas nasales
-Existen hojas comestibles y no comestibles
-Me han comentado que a mi sobrino le ha mordido un cascabel
-Mi hijo lleva mucho tiempo en la ciudad
-A su hermana le ha enviado bastante chambira
-Los de Shaamatak son muy corpulentos
-Mi mamá lame las hojas de patarashca de majás con chonta
-El mismo jefe que llegó ayer ha llegado hoy
-La madrastra del Sol Étsa, fue la mujer de Ajaim
-Mi madrastra me castigaba demasiado
-El viento malogró la cumbrera y por eso le puse otra nueva
-Mis párpados parpadean quizá estén muriendo familiares
-La abundante pesca que obtuvieron ha sido señal de malagüero porque iba a morir mi abuelo
-Cubrirse con cobija
-El niño se ha dormido, cúbrelo con la cobija
-El apu ha invitado a rozar el patio escolar porque está muy monte
-El machete es bien doble no se puede afilar bien
-En mi chacra la maleza ha crecido demasiado
-La corona está hecha con las pepas de quinilla
-Mi mamá ha dejado remojando los maníes para sembrar mañana
-Tengo caspa en mi cabeza
-Dónde está mi hija
-Después de servir la comida a tu hermano también sírvele el masato
-Burlarse, reírse
-Mi hermano me hace reír con sus bromas
-Burlarse de un tartamudo
-La patarashca de las tripas de pescado con la hoja de eép es sabrosa
-La inflamación del útero le duele demasiado
-El epidídimo del animal
-La pampanilla es teñida con el huito
-Sin darme cuenta me metí en el hueco de la construcción
-El niño se jalonea porque no quiere comer la carne
-Por pasear ha quedado atrapado por sus enemigos
-Llevar al niño de la mano
-Cargar la escopeta con cartucho
-A mi mamá la embarcaron en la balsa
-La canoa que bajó se quedó en la parte cóncava del río
-Guardar para otro
-Guárdale la comida en la canasta al muchacho que se fue de cacería
-Sí, yo también quiero
-Esconder en un lugar donde no se pueda ver
-La víbora lo mordió porque regresó muy de noche
-Los que celebraban durmieron a media noche
-La chancha está preñada
-Corta por el centro
-En el medio del río hay una piedra grande
-Estaba en el medio, por eso no me has visto
-Mi mamá destripa la gallina
-Embarazarse sin darse cuenta
-Ha cerrado el cuarto que está abierto
-En Shimpuents han descubierto una cueva de huacharos
-El ejéeje cortó un palo
-Comí, bebí y estoy satisfecho
-Descubrir la cueva de huacharos
-El remo está hecho de remo caspi
-Descubrir a los que están enamorados
-Mi mamá todavía no se alista
-Mi hermano se fue en la balsa sentado sobre las leñas
-Donde se sienta mi padre es chimpui
-Esos horcones se pueden mover a otro lugar
-La piedra grande estaba estable, la hemos movido entre todos
-El mechero está prendido
-Sentarse, sentar, estar sentado
-Mi mamá prende el copal porque es de noche
-Estaba parado acá, se retiró allá
-Estaba sentado sobre el motelo
-Las mujercitas comieron los hongos en el sector ekén
-Hacer sentar al niño en la cama
-Trasladar la casa a otro lugar
-Quebré la chonta justo donde termina el cogollo
-Mi mamá sentada despioja a mi hermana
-Mi hermano menor está de paseo por el río Santiago
-Hermano, habla con paciencia
-Han colocado el horcón con exactitud
-La pininga se hace cuidadosamente
-Guía al jefe
-Destacar en el estudio
-Vacea cerrando la boca de la vasija
-Hacer perder las cosas de otra persona
-Los jóvenes se jactan porque se creen profesionales
-Me siento orgulloso porque mis familiares son profesionales
-Han disminuido mis chanchos porque maté uno
-Retira esa olla
-Cuando estábamos trabajando nos sucedió una desgracia, la víbora mordió al niño
-El tío por tejer ha malogrado la jicra
-Por pegar a su mujer ha perjudicado su vida
-Los jóvenes han matado a alguien
-A esa persona no se le puede hablar con firmeza, porque puede malograr tu vida
-Si no sabes el uso de las plantas medicinales, no se debe utilizar puede ser perjudicial
-Por enamorarme de una mujer casada he tenido serios problemas
-Yo mismo me he causado la desgracia, por castigar a mi hijo le he fracturado
-Por cometer adulterio me he causado daño
-La señora Soledad se ha establecido en la comunidad de Urakusa, nunca regresará a su tierra
-Mi hermano se detuvo un rato
-Detener a una persona para conversar
-Está derramando el masato porque está demasiado lleno
-El machete es muy filoso
-El señor Ugkush no escucha porque es sordo
-Pesquemos en la quebrada con barbasco para sacar bujurquis
-La niña sube a la espalda de su hermana
-Niñito sube encima de tu padre para que te cargue
-El perro se aparea
-El gallo monta a la gallina
-El diafragma del añuje
-Solucionaron el problema de tierra conversando
-Solucionar un problema llegando a un acuerdo
-La pared de la fortaleza del señor es muy fuerte
-La mancha del niño es grande
-Cerrar la cueva del animal
-Cierra la puerta para que no salga el perro
-Corta un palo largo para poner la cumbrera
-La cumbrera de mi casa está podrida
-Limpiar la mancha de la resina de plátano
-La yuca asada está quemada
-Me duele la cicatríz
-La altura de la casa es elevada
-Las mojarritas duermen en el canto de la playa
-El varón es alto
-En el verano se trabaja bien
-Me mordió el perro
-Masticar yuca para las gallinas
-Ser buen hombre
-La maquisapa se mece en el árbol
-El columpio de los niños es de un bejuco que se cuelga
-Aquel joven es muy atrevido
-El instructor trabaja bien
-Los hongos armadillo han brotado
-De veras
-Me faltó la carne
-La avispa me picó en mi boca
-La canoa está atascada en la palizada
-Mi abuela se ishanguea con la ortiga
-Llena con trapos la parte donde está rota la canoa
-Al niño no se le azota sino se le ishanguea
-Sin castigar a tu perro llévalo al monte a cazar
-El pájaro étsa vuela alto
-Sol astro
-El sol solea muy fuerte
-Dutikam makichik uchi etsajai betek etsantug dukuji ajajin jiman yuwatatus pujau iyau, nunitai Ajaimpi nuwe jima juuktakama aya uweteak aishjin ujakui yaki ima jimanash amuawa tusa
-Personaje de la cosmología awajún
-Puesta del sol
-Étsá aketáijin , etsá akaetaijin
-Reloj
-Étsa jiínai
-Oriente, este
-Cuando el sol está casi entre los dos lados
-Rayo del sol
-Mediodía, cuando el sol está entre los dos lados
-Étsa tegáwai
-Se le puede curar a la que se envenenó con barbasco
-He curado al señor que estaba enfermo
-Han calmado al niño que lloraba de cólera
-Afilaste los machetes
-Sacar punta al lápiz del niño
-Solearse en pleno trabajo
-El brillo del fuego da buena luz
-El sol tiene luz propia
-El sol sale con mucho brillo
-Alcánzame el tamshi por el otro lado del cerco
-Pela la yuca para asar
-Suwa e Ipak hicieron madrugar a Nantatai
-La luna que amanece
-Me duele el incisivo de abajo
-Repartirse el pescado entre dos personas
-Tu perro cazador es parecido al mio
-El niño es idéntico al que fue su padre
-Mi cerbatana también es igual
-La fiesta siempre la celebramos a lo grande
-No le dejé hablar
-Se puede aprender a enfrentar los problemas
-Dale consuelo por sus sentimientos
-Hija aprende a soportar la sed
-Es el consolador
-Reforzar la casa que está por caerse
-Maté un armadillo íchig con el perro
-El niño se enganchó en un espinal y se rompió la ropa
-Tela rota
-Despedazar la carne ahumada
-Al bebé no se le hace cosquillas para que cuando sea mayor no tenga actitudes voluntuosas
-Mi hija lleva a su hermanita sentada en su cadera
-En la olla grande ha preparado el caldo de armadillo
-Lavar la ropa sucia y dejarla impecable
-Despejarse el cielo
-Me mordí la lengua
-La pava no se aleja de su nido
-Mi madre y mi padre son separados
-Separar a la mujer de su marido
-Hay muchas mujeres aban-donadas
-A su mujer la hace avergonzar en la visita
-El camote asado es rico
-Tsapik habla en contra de su hermano
-Encontrarse en el camino
-En el trayecto me crucé con el sajino
-Encontrarse en una curva frente a frente
-Encontrar a una persona en el camino
-Entre nosotros vayamos al trabajo
-Revés
-Se iba a la ciudad, pero regresó
-Los visitantes han llegado
-El pasajero está pasando
-Dietar para tomar ayahuasca
-Está sensible la parte donde me picó el alacrán
-Visitar
-Teñir la ropa con el achiote
-El fierro se oxida
-La letrina es bien cochina
-La mujer gestante ya está por ponerse panzona
-Todos los pescados están envueltos
-Se rompió la muela y se quedó la raíz
-Con el cuchillo pequeño se hace el canal de la cerbatana
-Mi oído se ha llenado de cerumen
-El suri ha creado su capullo
-Yo maté a todos mis animales porque voy a viajar
-Mis hijos están muy enfermos, la enfermedad es muy peligrosa
-El caldo de chonta es rico
-El chancho llegó bien abollado
-Amontonar la leña en un solo lugar
-Lo que incuvó la gallina ya está rompiendo el cascarón
-Nos consolidamos para reclamar nuestros derechos
-Debemos de reunirnos para ir juntos
-Reunión de personas
-Reunir a las autoridades
-Vine a participar en la asamblea de autoridades
-La reunión de los padres de familia fue ayer
-Los padres de familia que se han reunido están regresando
-Entre varios han reñido al muchacho
-El palo que me lanzó el niño cayó cerca a mi
-Pilar el arroz
-A la hora de la comida me ha considerado
-La costilla del majás tiene manchas
-Junta para tu padre las frutas que se han amontonado
-Con mis vecinos hice la minga
-Prima de una mujer
-Primo de una mujer, prima de un hombre
-Primo de un hombre
-A Iwa los Tigkishap lo comieron horadando
-El niño se ha atusado el cabello
-Los dos se han adulterado
-Cometer adulterio con una mujer casada es muy peligroso
-Apaga la luz para dormir
-Los niños no deben tocar esa especie de luciérnaga porque es maligna
-Hacerle olvidar sus sufrimientos o preocupaciones
-No se toca el insecto de alas brillantes para que no se raje los pies
-La mujer sabe hacer fermentar el masato
-Mis parientes duermen en mi casa
-Doy posada a mis parientes en mi casa
-Estaba sufriendo y conversando le hice olvidar
-Le hice esforzar por no hablarle bien
-Al adúltero lo quisieron agarrar a la fuerza
-El monte es bien espeso para trabajar
-Vadeamos prestando la canoa
-El perro del monte
-Trajo cargando las hojas de palmiche que envolvió engrosando
-Los tigres viven en las cuevas
-Piaya camaya pequeña
-La boa sale a media noche
-Hijita está amaneciendo, prende la candela
-Hervir y endurecer la sal
-Hacer endurecer la pininga recién elaborada
-Traer leña a la casa
-Aumentar la crianza de animales
-El niño empachado bota mucha ventosidad
-Está muy nublado, va a llover
-Cuando comen la carne cazada con el perro, se debe lavar las manos en la ceniza de la fogata
-La diosa de la agricultura soltó ventosidades
-Mi diente premolar está picado
-Suspensión de la toma de ayahuasca
-Los jóvenes han suspendido la toma de tabaco
-La garza está en el agua
-Yo también tengo una chacra tan grande de arroz
-En la tinaja había bastante masato
-Regreso dentro de un rato
-La persona debe ser decente
-Si uno no es honrado no puede conseguir trabajo
-La huangana era así de grande
-He confundido a mi sobrino con otra persona
-Tantas veces le he pedido
-Estoy muy tranquilo
-Está muy avejentada mi cobija
-Cuando el jefe no cumple un acuerdo con los padres de familia, pierde su prestigio
-Eligieron a un jefe insignificante
-El pro- blema era sencillo
-Tanto han comprado
-El niño sigue igual de enfermo
-Hay un niño loco andando
-La cerbatana hecha de huacrapona es muy buena
-Cumple perfectamente el trabajo
-Tumbaron tantas veces los árboles
-Con exactitud se teje la jicra
-Lo he amonestado varias veces
-Fastidía la bulla que hacen
-Ishangéate con hortiga para que te pase el dolor
-No bogues y para la canoa
-Muchacho no debes comer dulces para que no pierdas la fuerza de tu aire al pucunear
-Lava el vómito del niño
-Le satisfice el antojo de comer el suri a mi esposa
-Se puede hacer suavizar el aguaje para comer
-Lo hice pasar porque me daba pena
-Para que no contagie su enfermedad lo he trasladado a otro lugar
-Sólo miré al mijano que venía y los dejé pasar
-El niño aprobó porque sabe la lección
-Sentía mucha pena por el fallecimiento de su pariente
-Hasta ahora el problema de mi hermano está pendiente
-La corrida del agua del río es interminable
-Llegué al último
-He dado por terminado el trabajo
-Preparo comida para los docentes
-Has hablado en contra de nosotros
-A las mujercitas se les debe enseñar a cocinar
-Variedad de chopé
-Variedad de chopé
-Los jóvenes están siendo peones de los mestizos
-He rozado una parte en forma dispareja
-Han comido la carne en partes
-Mandar o llevar a un enfermo al médico o curandero
-A mi abuelo lo han llevado al médico
-Se fue a dar un contrato
-Un criminal manda matar a alguien
-En nuestro pueblo necesita-mos una buena posta médica
-Hizo emborrachar a su hermano invitándole pijuayo preparado
-Ahora hiciste más grande la pininga
-La gallina enana es de cuerpo más grande
-La señora dejó de hacer la tinaja porque se endureció la arcilla
-Levantar al niño que se cayó
-Abre un poco la patarashca, para ver si está cocinada
-El camote asado es rico
-Calentado
-Antes vendian buenas enaguas
-Los antiguos cuando se molestaban con sus señoras dormían aparte en tagkamash, la cama de soltero
-Kajin duerme profundamente
-En la profundidad del agua viven las sirenas
-Romper la mocahua tumbando al suelo
-Rompió la tinaja con un golpe
-Sin darme cuenta me he chocado
-He desobedecido a mi padre
-Anan hace la invitación para los trabajos compartidos
-Invitación para la fiesta
-Llegaron nuestros invitados
-Convocar, invitar a varias personas para convidarles masato o comida, o para festejar algo, hacer invitación para una fiesta, invitar a una minga
-Mira levantándole la cabeza
-Variedad de maní con cáscara roja
-Colibrí
-Relato de la mitología awajún
-La señorita viene bien pintada con achiote
-Dutikamun, uchijin Amichan Kujanchmajai susauwai numi tsegkennum etegtinme tusa
-Ipamát era persona
-Hace mucho trueno porque las curuhuinses van salir de su nido
-Han invitado para la actividad de Teesh
-Provocaron la lluvia para su enemigo y lo atacaron en su casa
-Disparo, bala disparada; lo que reventó o explosionó
-Ha llenado la canasta con yuca
-He ahuyentado a los sajinos
-A su hijo lo hirió con un golpe en la nariz
-Ha enterrado el plátano isleño
-El señor Aqjis es gringo
-El tronco seco está peligroso
-El remolino me da miedo
-Tener miedo al perro
-Mi sobrino es bien intrépido por eso se ha integrado
-Yo, nunca he tenido miedo
-Hacer trasladar a varios, hacer ausentarse, hacer huir a varios
-El pájaro huyó asustado
-El cangrejo le hacía perder suerte en el mitayo a Iwa
-Dejó la casa vacía
-He paralizado mi trabajo
-Parar de llorar
-Amárrate la pampanilla
-La broma es entre los adultos
-Reparación de una cosa
-Abrir la extensión del ancho de la canoa
-Parecía una mujer bonita
-Vestirse con ropa nueva
-El señor Sugka era bien elegante
-La corona es atuendo del hombre
-Se vistió bien elegante para su matrimonio
-Yo dije de broma
-Bromear a la mujer
-Dicen que el documento está oculto
-Demostración, presentación
-Me toca presentar el trabajo
-Dar ejemplo a los alumnos
-Dar confesión de nuestro problema
-Demostrar lo aprendido
-Mostrar; hacer ver sus fallas a alguien
-La bayuca es comida del boquichico
-Voltear la patarashca
-La escuela no está arreglada
-Íwagbau
-Están hablando de bromas
-Está arreglando algo malogrado
-La iguana está comiendo los huevos
-Imattai akupkam nunisag aentsun yajumtai, íwanchin ainjag achiktagkama waa muunnum waigka megkaekamtai, jii jijumiag kayukag tikima jaak tupikaktatus: wampag, shampiu aidau najanea jiintai múun aidau mainau imátikam jiintai achikag dekas asu asutinakua dekas tikima jatai atiawag akupkam wesa, entsan uma umakua pati jakauwai
-Rel
-Planta silvestre parecida a la papaya
-Nombre de insecto
-Nombre de insecto
-Tipo de demonio que canta como rana
-Mi tío tiene una hija prometida
-Ensuciar la ropa
-Subir las hojas para tejer
-Si hay salud es una buena vida
-Los que dijeron que estaba mal, se equivocaron no está enfermo
-Huy, por qué pescaron tanto
-Bandeja
-El niño ensució la ropa
-Espera
-La abuela está espantando a los animales
-Qué grande es la gallina
-Porque era angosto pasó sumiendo el vientre
-El motelo es inmortal
-Se estornuda porque nos va a dar la gripe
-La mandíbula del sajino está colgada en el cerco
-Me pinché mi pie con la espina
-La anguila no existe en el Marañón
-Cuando llegamos a ser ancianos, nos enfermamos de reumatismo
-El señor Tsamajain al ver que su hijo llegaba de la ciudad lo miró sorprendido y preocupado
-El plato de perro
-Mi hijo está postrado, casi muerto
-Había un muerto
-El agua gotea de la tinaja rota
-El rozo está terminado
-Él es bien enfermizo
-Terminar de sembrar
-La pintura de color púrpura se hace hirviendo
-Ponerse ropa húmeda puede provocar enfermedad
-En nuestra tierra hay muerte
-Me contaron que mi hermano se ha librado de la muerte
-Venado
-Del fémur de venado se elabora la quena de hueso pijun
-El puma muerde por cualquier parte del cuerpo
-Tipo de zarigüeya
-Mi hijo se golpeó en el omóplato
-Después de bañarte te secas con algo
-La iguana anda arrastrándose
-La decoración de la pininga es rayada
-La cerbatana se limpia con la baqueta para pucunear
-Barre la casa
-La escoba es de tamshi
-Alcánzame el jabón para bañarme
-Escucha con atención
-Nuwa tsawanjin wainmamau
-Epidemia, enfermedad
-Ha caido una epidemia
-El veneno es muy peligroso
-Mi hermana se enferma mucho
-, imatnuk aina tiuwai
-Límpiate de lo sucio que estás
-Limpia tu espalda con la mano
-Se ha puesto una ropa muy grande
-Compré con el sencillo
-El canto de la unchala es porque va a llover
-Habla indefinidamente
-Si no está el dueño de la casa no se entra
-Quédate en la casita
-Está construyendo la casa para su suegra
-Me he acercado para conversar con el apu
-Está bien salado el pescado porque le hemos echado mucha sal
-Este es un profesional experto
-Llegaré a mi casa
-El manco cogió a la gallina muy cerca de la casa
-Los wampukus eran morenos
-La aceituna del monte también se madura en la boca
-Mi hermano es moreno
-Huy
-Al bebé báñale con agua tibia
-La picadura del alacrán se trata con el vapor de las hojas de yuca hervida
-Cuando nos pica el alacrán se ahuma con el vapor de las hojas tiernas de la yuca
-La pava del monte se bañó con las canas
-Colibrí, picaflor, en general
-Por visitar a mi pariente me he contagiado de sarampión
-En mi primera mujer tengo algo que tomar
-Hablaba bastante en defensa de su yerno
-Los comuneros han atacado a uno de sus parientes porque le consideraron brujo
-La mujer amarró su cushma con una pretina
-Persona amarrada porque ha robado
-Amarra con bejuco al animal cazado
-Fuego, candela
-jíi anentái
-Pupila
-Párpado
-En mi ojo entró una basura
-Me dió conjuntivitis
-A mi hijo le dió la neumonía
-Kuntin pasugken egketu achiktagkama uwetja jiiyamu
-Salir de cacería al monte
-Salió el detenido
-Jíincham aénts asa nuwa wititsin dujinum anutumakui
-Puede salir de la casa
-Gancho para pelo hecho de las plumas del tucán
-Gancho para pelo hecho de las plumas del guacamayo
-Desarmador
-La yuca asada dura bastante
-Atiza la candela
-Amar a la mujer con aflicción
-Amar con aflicción
-Yuca ennegrecida
-Etsa comía bien el ají
-La gallina se lubrica con su aceite parecido al ají
-Compró dos gallinas
-Entre dos trabajan el rozo
-En la naciente de una quebrada abundan las aves
-En la comunidad de Nujagkim existe una epidemia
-Al momento, al instante
-Se molestó al instante y golpeó a su mujer
-El camino está cubierto de hierbas
-Están haciendo el camino para que los niños puedan llegar a la escuela
-Enseñar la vida de los Awajún
-Los profesores están estudiando
-El hilo de chambira se ha enredado
-Raspar un palo hasta que haga plano
-La gallina aplastó al pollito
-Para icarar a la mujer se dedica al jiukám
-Entre mujeres discuten
-Tuvieron una disputa por la educación de los niños
-Le reñía a su hija
-Está asando el abdomen del majas
-Esta mujer discutía con su madre
-Aquí está el árbol de capirona
-A mi me dá miedo el parto
-Estoy próxima para mi parto
-Ésta persona está comprando gallina
-Esta persona es muy mala
-Él cuando duerme ronca
-Lleva esto nomás
-Con un barroso te contagias por el beso
-Parecido a esto se puede comprar
-La señorita huyó con un hombre casado
-Venga por acá
-Compra tú también igual
-Nombre de picaflor pequeño
-Solo nosotras nos vamos y le traemos
-Compra para nosotros lo que necesitamos
-Mi mujer es delgada
-A mí me sirves la carne deshuesada del armadillo
-La flor de pijuayo es muy rica
-La gallina cacarea
-Hacer gárgaras
-Cuando te enjuagues la boca has gárgaras
-El cuerpo de Shimapuk era delgado
-Las moscas se propagan cuando no se cuida bien las letrinas
-El tamshi se extrae jalando
-El gallinazo defeca la carroña para que el gallinazo blanco pueda comer
-Debes comer la raya con la ropa vieja puesta
-Familia del chotacabras
-Etsa hizo un conjuro para que los comejenes puedan carcomer todas las cosas de Ajaim y llevar su castigo a la faz de la tierra
-Mi yerno es muy tacaño
-Salar pescado
-La urdidera sirve para tejer la cushma
-El remo tiene la forma de mojarra
-El dardo para pucunear el cotomono se introduce un poco ajustado
-Encogiendo las piernas levántate
-Alcánzame el ovillo
-Envolver o amarrar algo con hilo, soga, bejuco
-Corta las hojas, amárralas y luego cárgalas
-La mujer estéril no puede concebir
-El niño es bien legañoso
-La cabeza de boquichico fue cortada para la venta
-Las ruedas o neumáticos están hechas de goma o látex de caucho
-Las piernas de trompetero son largas
-El señor cuando venía del monte, siempre golpeaba la aleta como señal de alerta
-Carga la canasta remendada
-El motelo llegó rodando hasta abajo
-Ahora los calzones de la mujer son bien pegados
-La palta es igual a la carne en su valor nutritivo
-La pantera negra es bien brava
-Mi hermana me invita ir a su chacra
-El sapo come el tizón de leña
-La sachapapa morada asada es bien rica
-Tengo sueño
-El faique abunda en Bagua
-El niño está muy soñoliento hay que darle de tomar tabaco
-El felino mitológico transmite visión
-He soñado a mi padre
-Mi difunto padre me habló en mis sueños
-Pásame la hoja seca de plátano
-Siento cólera
-Aunque sus hijos le molestan no se amarga
-El niño se atoró con el hueso de pescado
-La abuela se mató ahorcándose
-Han matado a varias huanganas
-Envidiar al que aprende
-Odiar a una persona perversa
-Criticar a una persona sin saber
-Tener furor a un enemigo
-Por hacerle bromas por su hermana, lo hizo amargar
-El apu es bien serio, difícil de hablar
-De afuera vino muy molesto
-Durmieron la manada de sajinos
-Fermentar
-La plataniza se ha fermentado
-Casi me olvido del tejido de la cinta
-Me he descuidado de mi hijo por eso se cortó
-Se calló de hablar
-El hombre sin visión nunca defiende a sus parientes
-Vivo descuidadamente
-Me despreocupo de mi hijo cuando lo veo andar
-Un antepasado mató a la anaconda cortándole el corazón con un carrizo
-La sachavaca está masticando las hojas
-No se puede ver, está oscuro
-A los parientes no se les puede mirar con desconfianza
-Le tengo mucha confianza
-Joven mañoso
-El tucancillo en canga es rico
-Mi cabello sucio lo lavé con cocona y quedó limpio
-Fácilmente se puede ter-minar
-Mi padre es bien noble
-Etsa le dijo a la zarigüeya que matara al chancho y él respondió que lo veía hábil y le era difícil hacerlo
-Fácil, posible de hacer
-Difícil, imposible de hacer
-Se fue discutiendo con su cuñado
-Para terminar el camino hubo mucho esfuerzo
-La gallina salió cacareando
-Para terminar la construcción de la casa se han esforzado mucho
-Para ponerse enema se agacha
-Los loros chocleros descendieron al maizal
-Si uno come la mishkipanga sin yuca se puede estreñir
-El hongo blanco se come en patarashca
-Al niño le dio un puñete en la cabeza
-Los ancestros primero se cubrieron con la llanchama
-De veras
-Me arde la picadura del pucacuro
-Palmera cuya hoja es usada para techar la casa
-En la tierra esponjosa o en la cima existen víboras muy peligrosas
-El plátano aún está delgado
-El grosor de la canoa es muy delgada
-El Marañón tiene islas
-Me he descuidado en hacer mis documentos
-Me he descuidado en terminar de construir mi casa
-Mañana en la noche
-Temprano en la mañana
-Me voy madrugando
-Nombre de rata pequeña, blanca
-No puedo soportar
-Resistente al dolor
-Pedregal
-Pito, silbato hecho de corteza de pitu, o hueso del caparazón del motelo para imitar al añuje
-Raspa un palo para asar la gallina
-Viene al anochecer
-El niño se ahogó con agua
-No cargues peso
-El ala del coleóptero brilla
-Mestizo
-no tienes sed
-El agua está goteando
-Los locreros viven en grupos
-La ropa se coce con la fibra de chambira
-Los niños juegan en la cocha
-Cómprame un cuchillo
-El perro robó la carne de chancho
-Los perros quieren pisar a la hembra
-Caracol de tierra
-El fasaco vive en la cocha
-Ponte colonia
-Olor
-Tiene buen olor
-Pegkeg kugkuaja wajamu
-El joven besó a la chica
-No puedo cuidar al perro
-No está el guardián de la casa
-Murió de paludismo
-Zarigüeya acuática en la que una banda clara en forma de media luna se extiende desde la parte superior de los ojos hacia las orejas
-Variedad de zarigüeya
-Variedad de zarigüeya
-El período en que la zarigüeya se pone negra
-Le duele su pantorrilla
-Traga la pastilla para que no mueras
-El señor come con ganas la carne de chosna
-Vas a ir a pie o en canoa
-Trae palos secos para atizar el fuego
-Cocona con espinas en el tallo, fruta peluda y dulce
-Cocona dulce, delgada y larga
-Cocona ácida
-Cocona más grande, dulce
-Cocona pequeña, dulce
-Cocona más larga, ovalada y dulce
-Cocona con cáscara y tallo negro
-Va a venir mi compadre
-Yus kajeka shimak ashi wajijin yajuak nujinum weuwai
-Variedad de sanango
-Kunám jeen usukia kanusa amain ikankauwai
-Igual a kuncháu pero alrededor de los ojos es azul con negro
-Igual al kuncháu pero de color gris
-Estaban vendiendo kúnchi
-Cuidaba a los animales
-El gusano me ha picado en el brazo
-No mates la gallina de pescuezo pelado
-La mordedura de víbora se cura con cashapona
-Tujash nuna tayatak nuigtush kúpik chígki aina nuna aishjiyai, nii waketak akaska ukugbau asa shinutsuk batsamin aidawai, abautin shinuktin asa
-Herido de bala de escopeta
-Quebrar
-Te va a morder el ichichimi
-Estan buscando kurarína para un enfermo de mordedura de víbora
-Los mestizos pelean por el oro
-Agua turbia
-Tejón, coatí, achuni
-Variedad de coatí o achuni más rojizo y grande siempre esta en pareja  kuín kúshi
-Variedad de coatí o achuní
-Persona que se parece al coatí por sus hábitos solitarios de caza
-Variedad de coatí que es notablamente gregario por sus hábitos de caza
-Variedad de coatí, achuni
-Los niños juntaron cacao silvestre
-El masato está espeso
-Pasa, siéntate en el kutag
-Dile al hilador que te enseñe
-El halcón esta comiendo a la gallina
-Se lesionó por jugar pelota
-La mujer murió por la picadura de araña
-Toma la pastilla con agua hervida
-Timantim, Teesh, Achayap, Tsayag aatus segau ainawai, tagkumawagtatus
-Se cortó
-Bajar una cosa
-Quitar una cosa
-Llevar o acompañar hasta cierto límite en el camino
-Hervir
-La rana se come
-Dice que se suicidó porque amaba a la mujer
-Contentarse, alegrarse, sentirse bien
-Ser suficiente
-Ahí no más
-Está cantando el huancahui porque presiente que alguien va a morir
-En mi pueblo hay luchas
-Pelean borrachos
-Están peleando por una mujer
-Te ensuciaste con tierra
-Te presto mi machete
-Viene el asesino, cuídense
-Va a cambiar al perro más gordo por el gallo
-Río Marañón
-Estoy limpiando las tripas del armadillo
-El camarón cuando se cocina se pone rojo
-Tengo un hijo varón
-Que deshierben la chacra de yuca
-La mojarra es muy pequeña
-Usado para enseñar a apuntar un objeto
-Tiene puesta ropa vieja
-Grillo
-El pájaro come grillo
-Nombre de insecto venenoso parecido a la langosta
-Período en que el oso se pone totalmente negro
-Sancocha manchúp
-El oso es muy grande
-Encías inflamadas
-Está cargando mucha yuca
-Perro cazador
-Matar
-Las larvas de la hormiga máya se come en patarashca
-Todos necesitamos del aire
-Contener la respiración
-No respira bien por la gripe
-No se puede pescar con el barbasco máyu
-Encontraron al desaparecido
-Patá, uchi, nuwa jakamtai megakaébau
-El majás cayó al agua y desapareció
-Ha faltado a su trabajo
-Ha fracasado en sus negocios
-Vino demorando mucho
-Desa- pareció por fallecimiento
-Heder, apestar
-Apesta el pescado podrido
-Variedad de plátano isleño tupido y blanco
-Variedad de isleño rojo
-Escribo con la mano izquierda
-El árbol de lupuna está grande
-Mijánji edad, sus años
-No se puede echar barbasco porque está pasando mijano
-Me llama a mí
-Se cayó la viga
-Carga al niño
-La palta est á madura
-Siente que no puede subir al cerro
-Los serranos hablan diferente
-Los cacucachus viven en la cocha
-Comamos meto huayo tostado
-múun naám
-Se puede sembrar ashipa en la chacra
-La persona que fue mordida por la víbora está al borde de la muerte
-El niño está tratando de cruzar la cocha
-Empiecen el trabajo
-He ido por primera vez a Lima
-Llegaré al final del baile
-Alistarse, armarse para la guerra; llevar la lanza al combate
-No tires piedras porque puedes golpear al niño
-Lánzame una cocona
-Los pájaros trinan
-El niño juega en la loma
-Cumbre de un cerro
-nája kapántu
-pagkí nája
-Variedad de planta medicinal de tallo suave con espinas como la ortiga, buena para la artritis y el cólico
-Ortiga crespa
-Ortiga de huerta de color rojizo, muy dolorosa
-Le di naranja
-Sigue la huella
-Malestar estomacal
-Quiero aprender a hacer canasta
-Antiguamente el picaflor era persona y se trasformó
-El eco del curaré es muy bueno
-El eco de la voz se escucha al otro lado
-Nos vamos a pescar mojarras
-Tumba el fruto de guaba para comer
-Invítame yuca
-Mapa hidrográfico
-No se bañen en el río porque se pueden ahogar
-El machete valeriana es muy buena para limpiar la maleza
-Prende el lamparín
-Bailar, danzar
-La calabaza huele muy agradable
-Te invito chapo de maduro
-El pájaro está volando
-Le salió la uña
-Acomodar el feto cuando está en mala posición
-Enrrollar a la arcilla para fabricar la cerámica
-Regálame un gajo de plátano
-No sigas echado levántate
-Resucitar
-Cuando sale la luna no se puede cazar
-Luna llena, luna sentada sobre sus patas traseras
-Media luna, luna que brilla
-Luna creciente, la luna trabajando, luna nueva  Nántu Nombre de personaje que fue esposo de chotacabras, ayaimama
-No solo te interesa bailar
-Hoy un bailarín enseñará a los niños
-He cortado el árbol napíkna para leña
-Napújuk Batsatkamu daaji
-Espacio rocoso donde existe salitre y donde viven algunas aves
-Sobrina sírveme algo de beber
-Mi hija ingresó a la universidad
-Amorcito sírvete el masato
-El cielo está nublado, parece que va a llover
-El esposo de mi sobrina es robusto
-La carachama no se puede agarrar con las manos
-Fruta
-Corta el árbol de caimito que no tiene fruto
-Los seguidores de dios están en la iglesia
-Mujer que persigue a un hombre para casarse
-La pelota es redonda
-Está bajando el sol
-Vino solo
-A él o a ella
-Los cachorros ya han abierto sus ojos
-Lávate la cara
-Lava la yuca
-s
-Bandeja, lavadora
-A él le dieron primero
-Mi cuñado fue el primero en matar una huangana
-Mató un olingo
-Estoy abajo
-Tu lápiz está debajo del cuaderno
-No quiere vestirse
-Voy a comprar y también de visita
-Huevo de gallina
-Yampitsa nujínjin ejejai
-Tapemos la rajadura de la canoa
-Escalera
-Tallo, tronco
-Vena
-saapna paámpa variedad de plátano
-Ajanum wegajai paámpan utitasan
-Comprensible, explícito, evidente
-Habla claro
-Estás parado llamando desde un lugar que no se puede ver
-Hago el corral para el pavo
-Mi esposo mató un tapir
-Mi gallina se metió a un grupo de gallinas ajenas y se fue
-Está ordenando lo mezclado
-Estoy enredada tratando de ordenar
-Le pegaron en grupo
-Estamos hablando acerca de Suwa
-La abuela recuerda a su hijo
-Las personas sabias siempre son recor-dadas
-Tiene fractura en la costilla
-Está sentado cerca al fuego de costado para calentarse
-Mira las estrellas hacia arriba
-Arco iris
-La boa devoró a la persona que estaba pescando en el río
-La panguana está cantando
-Abraza a tu mamá
-El tigre es rayado
-Dibuja haciendo rayas en la hoja
-Me remangué porque estaba cruzando el río
-plátano maduro sancochado y batido hecho masa
-Caldo de carne del monte
-Dejé el plátano maduro que estaba tratando de sancochar
-No me gusta la ropa con rayas
-Vino vestido con ropa a rayas
-Sabes dibujar con rayas
-Voy a comer sancochado de carne
-Ya está, ahora ya no va a gotear
-Utu pajan yuwawai
-Tienes muchas crias de piojos
-Nosotros tomamos agua del encharcado
-Mi chacra es plana
-Estamos aplanando la tierra
-Pela el plátano maduro
-Pecarí con patas delanteras y traseras blancas
-Pecarí con patas delanteras y traseras negras
-Mataron huanganas
-Tuyas tiene enamorada siendo menor de edad
-Está discutiendo sobre el problema
-No se puede hacer chacra en tierras con piedras arenosas
-Me contagié de varicela
-Dale de tomar agua tibia al niño
-Se fue en balsa
-Planta silvestre parecida a la papaya
-Estaba cosechando las frutas haciendo sonar
-Las frutas al caer maduras sonaban
-Ayamtai
-Estudiar
-Dale a tu abuela carne pura
-No tengo plato
-Trae la yuca que está en la canasta
-El nido del pájaro cayó en el camino
-El picaflor está haciendo nido
-Isula que tiene alas
-La isula picó al niño
-Neumonía
-Al niño le dio neumonía
-Cubre la canasta con hojas
-Se durmió echado en la tabla
-Llegaron nuestros parientes
-Siéntate en el piso emponado
-Si no es familiar, no le hables
-La víbora perro es perse-guidora
-Se fue persiguiendo al tapir
-Perdió el brazalete
-El gallo está montando a la gallina
-Deja encima de la tabla
-Rápidamente se emba-razó otra vez
-Han robado el pate de mi abuela
-Ganso
-No vendes zapote
-El travesaño se quebró
-No comas la tusa del maíz
-He visto una estrella fugaz
-Parate de costado para no golpearte
-Tengo miedo del relámpago
-Sube bien pegado
-Cómprame vestido, no tengo
-Se está meciendo en la hamaca
-Las mujeres nunca se sentaron en la cama de los varones
-Voy a arreglar la cama de los chicos
-El perro nadó en el río y al sacudirse está echando agua
-No rocíes el agua, me vas a mojar
-Besetnum aishmagkun wajemeaun saintin pegagme
-Agitar un frasco de medicina
-Agitar bien la medicina para darle de tomar al niño
-Mecer o sacudir la hamaca, menear
-Mover
-El Señor Sanchum preparó resina de caraña
-El señor Shajian embadurnó a su nueva cerbatana
-El chari-chuelo ha madurado bien
-En el tambo hubo ahumaderos de animales cazados
-Vendió bastante carne ahumada
-Pescó bastante pescado y eso estaba por ahumar
-El niño malo discute con su padre
-La canoa estaba mal hecha
-La afaninga le envolvió la pierna al niño
-El ratón roe la yuca
-Toca la antara
-Los loros comen sentados
-Colocar gente en fila, poner en fila a varios
-Siéntense en la mesa para que coman
-Mujer, envuelve al bebé para que no le dé gripe
-Ichisa tiene pereza por eso está envuelta en la sábana
-Desviar hacia otro lado
-Enrolla el tamshi y déjalo
-Lo llamé y se volteó rápidamente
-Estoy matizando el tejido
-No mates a la cría del piampia
-Tuyas toca flauta
-Invítame un poco de yuca
-El perro tiene garrapatas
-Prepara el cargador para el bebé
-Está haciendo la quena
-Tengo muchos lunares
-Llenar la canoa
-Cuando subo al cerro me da cansancio
-El niño se cae porque está débil
-Lo hice cansar haciéndole andar mucho
-Debilitarse
-Me cansé de tanto trabajar
-Llenarse la leche en la teta de la mujer
-Siéntate en la parte plana
-El niño se cayó boca abajo
-Ten cuidado con la pininga para que no se rompa
-Su cabello es bien liso
-Pelaron la topa y está resbaladiza
-Lijar
-He sembrado plátano guineo en mi chacra
-Se escaparon porque los querían matar
-árbol que produce variedad de pan de árbol
-shíig
-Hace mucho que el Marañón desembalsó
-Actualmente ya no utilizan el piyú
-Mi hija se ahogó en el pongo cuando se volteó la canoa
-Se golpeó con su hermano
-Lucía está lavando ropa blanca
-Está cuidando al bebé por eso no puede venir
-Golpeé fuerte al perro porque robaba
-La ropa medio blanca está vieja
-Despoblado, yermo, hostil
-Esta casa está deshabitada hace mucho tiempo
-Estaré en mi casa
-Hogar, establecimiento
-Llora porque le sale pus de la herida
-El fruto maduro de la guayaba de monte, está suave
-Siembra la yuca removiendo la tierra
-Viejo jorobado
-Me mordió un cangrejo
-Mi esposa sabe limpiar los microbios púsaji
-No parpadees, te voy a echar remedio
-La cushma del niño
-La ropa te queda muy apretada
-Dijo que no pescó carachama negra
-Yuca blanca
-Invítame un pedazo de camote
-Te dejé un pedazo de caguara
-Por qué estás desarreglado
-Pelando plátano me manché con su resina
-Hay flores rosadas
-Se cortó con el machete y sangró mucho
-De noche atrapamos hualo
-Mataron al zúngaro con el arpón
-Está trabajando en la chacra con machete mediano
-Se hizo pedacitos
-Han asesinado y hay mucha preocupación
-Las personas adultas no temen
-Me corté con saák
-La purma está libre de maleza
-La lluvia hace ruido
-Dame el zumo del masato
-El agua de la quebrada está muy cristalina
-Cáscara de seda
-Culata de la escopeta
-Tumba el aguaje tierno
-No patees a tu hermano
-Me voy a pasear con mi cuñado
-El niño está seco después de bañarse en la cocha
-No tomes agua de lluvia
-Escuchas que la lluvia está sonando
-Por qué comes sin sal
-Fue a traer una canoa y se desa-pareció
-No se puede cazar en la estación de sakamtín
-Pasar la comida
-El suber de la topa no es pesado
-La carne de monte fresca es muy rica en caldo
-La hoja de limón es verde
-Variedad de sampi
-Árbol cuyo fruto es parecido al de la guabilla
-Muy miedoso
-Es valiente por eso anda de noche
-No siente temor
-Es valiente, por eso conversa con su enemigo
-Ahora no tengas temor
-Viene el valiente
-El tamshi está colgando
-sal no refinada recogida del río en forma de granos
-Ata con saukaap
-Jairo se besa con su esposa
-Lava con mucha espuma
-Fueron a la quebrada
-Sacaron sal espumosa
-Mi perro es moteado
-El perro está tragando su saliva
-Babea mientras duerme
-El bebé está babeando mucho
-Está suelto
-Ataste flojo
-Está haciendo lanza
-Gracias, he comido bien
-Poro
-Esconde el hilador
-Tiene vicio
-Dale de comer plátano de seda asada a los niños
-Está pidiendo dinero prestado
-He venido a pedirle medicina
-Está en un lugar accidentado
-Viene a echar brea a la canoa
-Actualmente es muy difícil sembrar vainilla
-Le pegó porque es muy fuerte
-Mi hijo es débil
-Shawag necesita correa
-La mujer se pone la cinta
-El niño tiene oxiuros
-Fue a traer hojas para tapar
-Tapa la tinaja para que no escurra
-La flor floreció al medio día
-La herida está cicatrizando
-Niño atrevido
-Postergo el trabajo en la chacra
-El gallito de las rocas es muy bonito
-El perro está con pulgas
-No tomes muy frio para que no te de gripe
-Mi suegra es bien mezquina
-Iyashnum neje katsujam jinín tutai
-No soy mezquino
-He matado a la gallina que quería conservar
-La escopeta es prohibida, no la toques
-Está molesto porque está impedido de casarse
-Le impedí comer
-Vendí jabón
-Voy a la tienda
-Mi abuelo está haciendo canasta
-Augmatbaunum aishmag nunu dutikata tama ayu tusa, nunak umiau
-” Eso le decían para que vaya a pescar y él, se sentaba a mirar lo que pescaban
-No le des de tomar agua caliente al bebé
-Mandé a mi hijo a la tienda
-El camaleón cambia de color
-Cuando estaba en el río, me dio calambre
-Te gusta el sombrero
-Hija, no uses ropa corta para que no se te vea muy descubierta
-La mujer está cortando su ropa porque es muy larga
-Cuando llegue el fin del mundo, se temblará por el temor
-Le haces temblar de miedo
-Tiemblo de frío
-Mi hijo es soldado
-Mi yuca está aguachenta, caulla
-Mi hermano era barbudo
-chúnchu
-El maíz morado es de color oscuro
-En la quebrada Pumpuná hay muchas carachamas
-No vayas solo al monte porque Shaám te puede matar
-Sháam entsanum kuashat ayaawai
-El anciano vino con aretes
-Shawit mató muchas ranas en su cocha
-Ankuash mató un loro que comía shankuína
-Juan es muy blanco, cuando se saca la ropa
-El jefe quería hablar, pero no lo hizo debido al ruido
-Los profesores están en reunión y hacen bulla para acordar sobre sus derechos
-La rata es fea
-La lagartija corre fuerte
-No se encuentra fácilmente gallinazos
-Me picó la avispa negra
-Tu piel es blanca
-Asa el camote para comer
-Teje con chaquira
-No quieres comer guayaba
-No te manches con la resina de shawín
-El tigre negro mató a una persona
-shíig anét
-Complacer, dar gusto
-Sincero, cumplidor
-Persona fiel
-Acción de cumplir bien las órdenes y leyes
-Está feliz porque su hijo terminó sus estudios
-Me siento indispuesto porque tuve fiebre
-Me gusta ese chico guapo
-Tengo mucha mucosidad
-Límpiate la mucosidad rápido
-Niño con ameba
-Le curó al que tenía amebas
-El pollo encrespado se perdió
-Antiguamente vendían la shiringa
-Los niños crespos son lindos
-La vejiga de los animales se come
-Chimpa está vendiendo carachama ahumada en hoja
-Ahuma rápido la carne para comer cuando se cocine
-Está enfermo, tiene infección urinaria
-Anda al lugar donde se orina
-Encresta
-Sirve masato para invitar
-Le orinó porque no lo vió
-Perdí el cucharón
-No mató porque no cumplió con las normas de caza y pesca o por estar su mujer embarazada
-Tengo palmeras de sinamillo en mi chacra
-Cura al niño con el arbolito
-Escuchas el rugido del tigre
-Desperté porque me estabas llamando
-No recuerdo el canto del pihuicho
-El bebé gatea
-Aplasté para que dé a luz rápido
-La garza se alimenta de pescado
-Táamtam canta
-No rompas la tabla
-Mi hermana va a llegar de otra ciudad
-Es el que está vestido multicolor
-Tu enamorado es calvo
-Caña brava delgada y muy dura
-Corta caña brava
-A la persona muerta se le hinchó el estómago
-Acerca tu espalda al fuego
-Estoy de espalda al fuego para calentarme
-Bota la cáscara de yuca a la cocha
-Crío muchos animales
-Tengo pocos animales domésticos
-Se metió en el hueco cavado
-No agarres luciérnagas
-Calvo, pelado
-El cerro se derrumbó
-He comido mucho picante
-Se cayó de rodillas
-Siento grasa en mi boca
-Párate bien fuerte
-No te paras firme
-Mi amigo vive en la prosperidad
-Está bien parado
-Mi hermano vino a ayudarme
-Está trabajando en su chacra
-Chacra despejada
-Dicen que Samekash le hace la chacra a Pujupat
-La lagartija le picó a la gallina
-Estoy haciendo la chacra de mi hermano
-El bebé tiene la carne
-Ahora puedes trabajar
-El huérfano robó la sopa de boquichico
-Vino una persona extraña de la sierra
-Mi hijo es honrado
-Mi cuñado está acostado en la cama en silencio
-A mi cuñado le enviaremos un venado completo
-Lleva palmiche ligero por el camino
-El pollo pesa poco porque tiene lombrices
-El joven anda de noche guiándose por el tacto
-Te doy el pate usado
-El niño est á pateando al sapo
-La gallina se busca piojos estando en el palo
-És ta no es tu hermana, es extraña
-Mañana habrá trabajo general
-Por ahora estoy sin trabajo
-El perro ladra a lo lejos
-La cinta está floja
-Es trabajador pero no avanza porque está enfermo
-La gallina que ha empollado murió
-Reventaron los huevos de la gallina
-El takúmkit canta
-Estoy elevada
-El pájaro se eleva, despega
-Alza al niño
-Comamos la chonta de pijuayo
-Haz al instante lo que te digo
-El agua de pijuayo está aceitosa
-Aceita bien
-Es muy fino
-No tienes ceja
-No te pares en el borde del barranco
-El bebé duerme en la hamaca
-No tumbes el cerco
-Come pan
-Es muy grande el hueco
-No hagas tan grande el hueco
-Estoy viendo que hacen la curva de la tinaja
-El estómago de los animales es muy pequeño
-Tapa la tinaja
-Agarrar violentamente
-La señorita corta en la tabla
-Mi tío hizo corona con las plumas de la pava
-En el árbol, hace hueco el carpintero
-La mujer junta frutos de taúch
-Llega la cosecha de sachapapa
-El pájaro carpintero hace agujero en el palo
-Guía bien la canoa
-Corona grande
-Tsetsen está removiendo
-La huevera del boquichico es muy rica
-Infla bien la pelota
-Infla bien
-Está sin respirar
-Saca el camote
-Tiene comezón en la cabeza
-Tiene mucha comezón en sus axilas
-El masato está bien rico, en proceso de fermentar
-La planta se desprendió y cayó
-Ayúdame a pelar la yuca
-Agáchate rápido
-La gallina incubadora murió
-La gallina está incubando
-Perdí mi peine
-El objeto redondo está rodando
-Da la vuelta y pasa
-El pato está en el corral
-Es algo circular
-Haz círculos alrededor
-Canoa sumergida
-La gallina mató a su cria aplastándola
-yúmi tepét Época de lluvia
-Entraste en mi terreno
-Casa dividida
-Patio limpio
-Teté bukujatin bujajinia niime yampin
-Me inqué con imperdible
-El salto del grillo
-El loro es bonito
-ama tijag
-Viene mi nieto
-Me duele el estómago
-Hablas muy bajito
-Otra persona
-No agarres lo ajeno
-Llegue cerca de la casa
-Arrodillate
-Golpéale fuerte con la rodilla
-Arrodíllate para que des a luz rápido
-Tiene poca fruta
-Ticuna, pueblo indígena de la Selva peruana
-Hay muchos árboles Timuna
-El jefe repartió cosas
-No hagas sonar el metal, despertarás al bebé
-Yuca delgada
-Limpia la tripa de animal
-Voy a dar de comer trigo a las gallinas
-No cojas el tingotero porque te va a picar
-Abre el paquete para ver que contiene
-La picadura de alacrán puede ser mortal
-Mi papá come shiripira
-Corta la punta del árbol
-Quédense quietos
-Mi hija es calmada
-Bota con un palillo el gusano
-A dónde va mi mamá
-El tuátua come grillo
-El tuchíra corre en la playa
-Discutimos mucho
-Mi tío es muy malvado
-Mi padre no es malvado
-Mi hijo está con los ojos hundidos
-Mi hermano vende zúngaro
-Dame las plumas blancas del tucán para hacer corona
-Me mordí la comisura de la boca
-Voy al fin del mundo
-Mi papá hace tablilla para atar perro
-La papaya es una fruta ovalada
-Aprende a hacer tablilla para atar perro
-Toma chapo de plátano maduro
-Haz chapo de plátano maduro
-Entonces,
-Pero yo me voy
-Mi hijo no se detiene por nada
-Me detuve
-Está tratando de resolver lo irresoluto
-Trabaja fácilmente
-No puedo hacer una pininga
-Dame túju para sembrar
-Estás comiendo el cartílago de gallina
-Una casa construida con techo de palmiche dura mucho tiempo
-Anuda lo que se ha roto
-Laringe fuerte
-Este suelo es suave
-Las plantas de la chacra ya han madurado
-Sancocha la huitina roja para comer
-El niño juega con el mantis
-La cucaracha come maduro
-La vida no es para siempre
-Estable
-Aquí viviré para siempre
-Mi hijo es diestro en la caza con pucuna
-Mi hijo patea la pelota
-Mi hermano se ha tropezado con la piedra
-Es muy peligroso donde se cruzan los ríos
-Me quedaré en casa haciendo tukup
-Choque con el perro
-Acertar, cazar con pucuna o cerbatana
-No se le puede decir nada
-Mi papá viajará el domingo a Nieva
-Fue a tomar ayahuasca en la catarata
-Se rompió la pierna y quedó con defecto físico
-Se ha enviciado de jugar con la pelota
-Ha cutipado al niño
-Ha cutipado a su hija
-Hirió con veneno a la perdiz y la desvaneció
-Está débil
-Discutieron mucho
-La bru-jería es peligrosa
-El tunchim come cucaracha
-No llegué pronto porque había muchas curvas
-Estoy en la curva
-Lo dejé en el recodo del río
-La serpiente está serpenteando
-Tumba el árbol torcido
-Está en el recodo del río
-Ya ví el árbol que está torcido
-Palo torcido
-No quiero ociosos
-No te pares torcido
-Perdiste mi carcaj
-Le pegaron y está morado
-Tiende el mosquitero
-Manguaré
-No me rompas la batea
-Le hizo un moretón
-Asa el plátano más maduro
-Le duele la espalda
-Voltéale de espalda
-Ponle de espalda a tu hijo
-Báñalo de espalda
-Siempre alejado
-Hacer que se aleje de su esposa
-Hay un perro peligroso, aléjate
-Mi esposo se alejó de mí
-Vive alejado
-Dejó escapar al oso
-Está golpeando una víbora con machete sin filo
-La canasta tiene agujeros
-Hace iluminar la casa
-Me despejé la mente
-Su rayo alumbra
-El plátano maduro está bueno para hacer chapo
-Se sanó
-Mi nieto es generoso
-Lo perdoné
-Viene quien se calma rápidamente
-Chimpa viene tranquilizado
-La espina de pijuayo está espinosa
-Dedo del pie
-Dedo de la mano
-Hay muchas cucarachas chicas
-Árbol sin hojas
-Patarashca de pececillo
-El ahumado de pescado está tostado
-La carachama se tostó
-He criado al niño
-Cocina molleja de gallina
-El oso vive en este cerro enpuntado
-El chancho está creciendo
-Niño tierno
-La lluvia salpica
-Se ensució con el barro
-Viven entre los barros
-Se le hinchó la encía
-Come papaya madura
-Estás colorado
-La piña está madura como para comer
-Le hizo regresar a su compañero
-Le da dinero a su enamorada
-La mujer tiene enamorado
-Mi amiga vendrá hoy
-El pájaro mentiroso vuela en lo alto
-Mujer engañada o abandonada
-No mientas
-El niño no miente
-Su esposo le mintió para irse con otra
-A la mujer siempre la engañan
-Haz un pate
-Cortaron la planta que estaba germinando
-El toé está germinando
-La planta cortada ya no puede brotar
-Los cultivos están germinando muy bien
-No saques el ojo de la planta de yuca
-Mi hermana mató un mono que estiraba la cabeza para mirar
-Mi hermano atiende bien a su suegra
-Mi hermano tuvo suegra del rio Santiago
-Invítame masato cernido
-Tengo un adorno hecho de huesos de huacharo
-Regar
-Riega la semilla de huaca
-Empolvorea con insecticida la isula
-Anzueleando pesquemos el mijano
-El pico del tucán es encorvada
-La reunión se realizará de día
-Mi padre llegará pasado mañana
-Amanecí cuidando al enfermo
-Nui tsawakun wetatjai yaaktanum
-Kashi aajaku tsawai wegamu
-El gallo canta al amanecer
-Me duele el intestino delgado
-La víbora venenosa mordió al perro
-He cazado un mono fraile
-Hacer lanzar con fuerza un líquido
-Está lanzando agua para mojar
-Prepara un collar y póntelo
-Mató venado con veneno
-Dame el gancho
-Se desvió hacia el monte
-Muy delgadito, muy finito, muy angostito
-La guayaba crece delgada
-Salta alto
-Haz saltar al perro
-Ven de un salto
-Es ágil y por eso no se cansa
-Estoy escribiendo en un cuaderno rayado
-Le operaron porque estaba enfermo
-Écha te en la estera
-Está haciendo estera
-Termina de trazar
-Tienes polvo en el ojo
-Ahora hace mucho frío
-Pestañea mucho
-El niño es inseparable
-El bebé destetado tiene hambre
-Se acostumbró y no quiere separarse
-Troza el bejuco
-Tiene mucha hambre
-Su axila apesta
-Lleva en tu hombro
-Viene la oleada
-La oleada lo mojó
-El perro está en el rincón
-Toma hierba
-Los peces murieron río abajo
-Nosotros vamos río abajo
-Planta silvestre cuya hoja es de olor desagradable
-El árbol est á inclinado
-Agáchate rápido
-Come guayaba verde
-Me corté con el machete
-Dale un pedazo
-Empuja con palo y tumba la fruta
-Atiza más
-Tiene asco del suri
-Matemos shitari
-Vino el curandero
-Come perdiz
-Enfermedad curable
-Se puede curar
-Esa piedra es movible
-El niño llora
-Le dejó su esposo porque la mujer es estéril
-Dicen que no puede tener hijos
-La mujer dio a luz un varoncito
-Su esposo la ayudó a dar a luz
-Le pega a su entenado
-Sobrino, ven, ayúdame
-Cuida al bebé
-Ropa reducida, achicada
-Reduce el borde de la canasta
-Mojaste a tu hermana
-No te has puesto la ropa mojada
-Desinfla la pelota
-No comas crudo
-Se ha enmontado su chacra
-El cangrejo come pececillo
-El kiwi chupó la sangre de una persona
-La piedra se desprendió y cayó
-Dónde está la piedra desprendida
-No tienes muchas pestañas
-Si hay algún problema nos podemos informar
-Puerta abierta
-Lo denuncié con el jefe porque robó
-La pluma del pihuicho cayó en el masato
-La sachapapa se come sancochada
-Acabaron mi algodón
-Préstame tu toalla
-Si te bañaste, sécate
-Seca al niño
-La cola del mono se come
-Perro sin rabo
-He comido poco
-La persona tose
-Da miedo cuando tose
-Me antoja comer aceituna del monte
-Yo soy muy pobre
-Se derramó el agua
-Sírvete la sopa
-Me mojé con agua caliente
-Lo mojó con agua
-Encontré el dinero escondido
-Muslo trasero
-Le duele el muslo trasero
-No deja a su mujer
-Se saca la prenda para bañarse
-Saca el palo que está plantado
-Hirvió el agua hasta sacar su esencia
-Está parado detrás del pavo
-Me voy al cementerio
-Fueron al cementerio
-La casa está deshabitada
-Se enfermó en forma incurable, parece que va a morir
-Derramaste grasa en el agua
-Viene Atrás
-Se va a ver la sepultura
-Se va a hacer mermar la quebrada
-Llevo para tomar
-Viene el fiel
-Llegaré cuando esté terminado
-Cumple con la tarea que se le deja
-Está listo
-Estoy listo para irme
-Va a estar en la choza
-Pelota inflada
-Está enfermo y se pone enema
-Le salen recién las plumas
-Entonces que sea así
-No escuchan que llamo
-Escribo con la derecha
-Viene una manada de animales
-Jinta wegkajam wagamainchau
-Camino ancho
-Entonces que sea así
-Está llamando a gritos para que lo ayuden
-Le pedí ayuda para ella
-Llamo a mi hermana pero no me contesta
-Aprendes rápido
-Conozco la ciudad
-Me acostumbré en otro lugar
-Haz aprender al perro
-He acostumbrado al pihuicho
-Traélo con engaños
-El gato está bien gordito
-Machete filudo
-Voy a acompañar al monte
-Me picó la avispa
-Dame tabaco fresco
-Toma chapo de plátano bellaco
-No pises el huevo reventado
-Salió lo que estaba enterrado
-Está ungido
-Traga su saliva
-No escupas
-Píntate la cara
-Me dio calambre en la pierna
-El niño derramó la pintura natural que preparé
-Niño aichatero
-Tengo ganas de comer carne
-Sube al árbol
-Wajuk weme
-Dale de comer al cuy
-Se acabó la leña amontada
-He amontonado plátano
-Es difícil estudiar
-Es muy capaz
-Qué se podría hacer para que esté quieto
-Hay una canoa impedida de pasar por la palizada
-Si no estás seguro no vengas
-Pasen a la casa
-Pasen a la casa de Yunin
-Me pica el isango
-Me limpié el estómago tomando sal
-Haz librar la suciedad
-Bótale la ropa vieja
-Botar los salvados del arroz
-Bota todos los zapatos viejos
-Come el calentado
-Calienta el agua
-Aprende otra lengua
-Me contagié de gripe
-Prepara la candela
-No se sabe cuando habrá temblor
-Prepárame una cerbatana
-Escóndete de tu hermana
-Rompió la calabaza
-No mató al ave
-Has traído demás
-Le aumenté más fruta
-Se fue tomando masato
-Trae la bebida
-Lo asustó cuando estaba solo
-Me asusté al ver al muerto
-Atemorizar o asustar a otro
-No me asustes
-Ayudar a una persona a salir de un problema, salvarse
-Salvarse de morir
-El pollo desplumado desapareció
-Palma de la mano
-úchi uwég Meñique, dedo pequeño
-Muñeca
-En el desierto no hay árboles
-Deshierba la chacra
-Ven rápido
-El bebé bosteza mucho seguramente quiere dormir
-Estoy buscando hongos pero no hay
-El maracana habla bien
-Juguemos con la flor de caña brava
-Sembremos maní en la época de la flor de caña brava
-Mi abuelo mató una perdiz
-Es muy orgulloso
-Le quería sobrepasar en la discusión
-Por qué anda preocupada
-Estoy sembrando yuca con el tacarpo
-Mueve la candela para prender
-El perro mueve la cola
-Mover el tizón para avivar la luz en la noche
-Tienes visión
-El perro ladra en vano, no muerde
-Encontrar, hallar, descubrir
-Encontré mis chaquiras
-Aquí vive un sabio
-Hace mucho que no lo veo
-Si es desconocido no le hables
-Lo llevó el remolino
-Trajimos a un conocedor de buena leña
-Por en vano he perdido tiempo
-Los jefes son conocidos
-Ese es un desgraciado
-El ciego es bueno
-Lo que escondiste está visible
-Tomando ayahuasca adivina
-No tengas miedo, es conocido
-Toma huayusa temprano para botar el mal aliento y tener buena conversación sin equivocarse
-Antiguo jefe
-Tu hijo es mentiroso
-waít anénkagtamu
-Pasar, entrar; entrar a la casa, entrar al hueco
-Se cayó la puerta
-La mujer tiene inflamación
-Mi hermana no miente
-No se debe mentir
-Sufrimiento por brujería
-Lo están molestando
-Numi wajajunum jegau tuajame
-Base del árbol
-Llegué a donde estaba parado él
-Mayán se pone de pie
-Sorprenderse
-Estaba esperando la canoa en la parada
-Persona parada
-Mira la base del árbol
-En esa casa vive una viuda
-Cosa, objeto
-Ven pronto
-He traído mono negro
-No tiene cosas
-Recoje las cosas, hay creciente
-Sé un héroe
-No agarres el chinche
-Tipo de macambo de tamaño mediano
-Tipo de macambo de tamaño pequeño
-Tipo de macambo de tamaño grande
-La sombra asusta a la gente
-En la noche penan en mi casa
-Trepó su esposo al árbol
-Es abismo, camina con cuidado te puedes caer
-Me duele el estómago
-Descontento
-Triste, afligido
-Serio
-Ponerse triste, ponerse descontento
-Bailas maravilloso
-La chaquira es muy deseada
-La lagartija no se come
-Le hizo gustar la naranja
-Están de regreso
-Vende bolsas de chambira
-Mi abuelo está haciendo un bolso
-La mariposa es linda
-Vértigo
-Tenía muchos mareos
-Hacer flotar
-Dale la canasta quitándole el peso
-Wampurushak ajanum wekaewai
-En la estación de Huimba se siembra maní
-Hay larvas en la cocha
-Ikamia pasun wanipjai betek shinin
-yawá wánip Ikamia kuntin yukagtin, ikamyawajai betekmamtin, wanipjai betek shinin
-Quedó al descubierto su amorío
-Eres muy popular
-Le di Barbo
-Me disloqué el tobillo
-Cocina maparate
-Estás sucio
-La mantona come huevos
-Puerco de hocico muy corto
-El gato está comiendo conejo
-Tiene cara redonda
-Construí mi casa con armayari
-Fue a tejer cumbas
-Quiero jugar
-Muy juguetón
-No tiene juguetes
-Juega bien con el perro
-Est ás desperdiciando la comida
-Mata al maquisapa
-Washíbau come cangrejos
-En el garlito no había nada
-No te ensucies
-Está haciendo escalera
-Tu hijo es flaco
-Quiero adelgazar
-Adelgazado, enflaquecido
-Vino bien enflaquecido
-Vendré pronto
-Mi hermano come con paciencia los pescados
-No tengo paciencia
-Habla con pa-ciencia
-Mujer coqueta
-Enloquecer
-Se fue apurado
-Mató un paucar
-El niño es travieso
-El gordo está llorando
-El vampiro después que muerde chupa la sangre
-El brujo me ha hecho daño
-Nombre de una comunidad
-Las pepas se usan para hacer collar
-El Wayámpainim está cargado de frutos
-En la entrada está el perro
-La afaninga corre rápido
-El guía de los gallinazos
-Se me acabó la sal
-El niño se está meciendo
-El niño está jugando ron ron
-Weejin se va a la chacra
-Invítame curuhuinse
-Ayer hemos comido achuni
-Tengo mareo
-Cayó por mareación
-Los antepasados ya no existen
-Cuida la canga
-El animal engordó mucho
-Ponte tu truza
-Se molesta en el viaje
-Ponle ropa
-El ancho del Marañón es extenso
-Está chamuscando al armadillo
-La boa se extiende
-Dejé el luegar donde estaba parado
-Vete
-No puede caminar
-Vienes de vagar
-Vengo de buscar dinero
-Vengo de andar
-Viene el mitayero
-Voltea la carne para que se cocine
-Lleva masato en la calabaza
-Si tienes boca habla
-Corral de gallina
-Construye el gallinero para las gallinas
-Palo firme
-Soy yo
-Viene el adinerado
-En la cocha hay bastante tuchira
-Ardilla de color negro más grandecito
-Tipo de ardilla muy pequeña
-Ayer maté una ardilla
-Atrapó una mariposa nocturna
-Remueve la comida para que no se queme
-Wichíkuat le enseñó las canciones amorosas a las personas
-Compró un vestido azul
-Los niños juegan con el wiíka
-Wijisám está en la orilla de la quebrada
-El fierro es brillante
-Lustra tus zapatos
-La calamina brilla con el sol
-Hay muchas plantas de platanillo en el camino
-Se oscurece el cielo porque el wínchunchu anuncia la lluvia
-El niño se cortó profundamente
-El señor se baña desnudo
-Shaag vive sin hijos porque es estéril
-El pájaro wisusu anda en bandada
-Me muerde el ichichimi
-Se cortó un tendón
-Los caimitos están maduros
-Mi hijo es un buen profesional
-Ahora aprendo
-En la montaña crece este árbol
-Tu cuerpo está amarillento
-El planeta Venus brilla muy fuerte
-En mi patio tengo muchas flores
-El enfermo está amarillento
-Me dio hepatitis y casi me muero
-Maté al yangunduro que estaba cerca de la chacra
-Averigüemos por quién va a llegar
-Casa pequeña
-Mi chacra no es pequeña
-Qué grande es mi casa
-He contribuido en el trabajo
-Cuando comía le hice provocar
-Ahora no hay cooperación
-Desde ahora, que haya apoyo
-Pon el asa de la canasta con la corteza de yais
-Yo voy por otro lado
-Yo vendo la fibra de chambira
-Voy a visitar a mi enamorado
-Vierte el masato
-Es muy tosco
-La carne está muy rica
-Qué lindo su cabello
-Toma ayahuasca
-Recoge las yucas
-Está mudándose
-Cambié de dirección
-Está trensando la chambira
-No le quites sus cosas
-Me duele el hombro
-Píntate con achiote
-Frótale en su pecho
-Quién habrá robado
-El coto mono juega
-Llegué recién
-Hoy me voy a la chacra
-Vete ahora mismo
-Recientemente hicieron el camino
-Ropa nueva
-He teñido mi ropa con las hojas de yamakái
-Bautizaron al niño
-Canta la paloma
-Yo no tengo achiote
-Tengo un cuaderno morado
-Hazle cargar piedra
-Está matando un lagarto
-Échate de costado
-La chispa del fuego quemó su ropa
-Aquí hay shinguitos
-Dicen que murió el niño activo
-Le riñen porque es inactivo
-Las palometas comen las frutas de requia cuando caen al río
-El perro comió la patarashka de rana
-Me robaron la semilla de sachapapa
-El perro robó la paloma que se estaba asando
-Le cambiaron la tinaja de mi abuela
-Haz que cambie los malos pensamientos que tiene
-Me está dando hambre
-No cambies mis cosas
-El niño llora de hambre
-Si el caldo de boquichico está salado, no me des
-El pájaro está abriendo las alas
-Se lastimó la cara con espina
-Muchos pájaros están comiendo los frutos de la planta trepadora
-Siempre he querido conocer al tucán
-Tengo heridas en la nuca
-Mués- trame la nuca para buscarte isango
-Mi esposo murió por la mordedura del cascabel
-Voy con mi hermano a jugar a la pelota
-Ayer por la tarde
-Quise matar al ave que estaba cantando pero no lo pude ubicar y lo dejé
-Jugue-mos con las flores de la planta
-Antiguamente la luna era persona
-Yawa ayujata
-Está descansando porque se cansó trabajando en la chacra
-No se harta de comer mucho aguaje
-No me cansa comer suri
-Me cansé de comer yuca
-La rata come los pollitos
-A pesar que le damos apoyo habla mal
-Estamos comiendo la chonta de wasai
-El tigre no se come
-Fue a pintarse la cara con yugkiínia
-La reina del curuhuinse es muy rica
-Variedad de sajino más pequeño que tiene pelaje moteado
-Mataron muchas punchanas
-Guanábana, tipo de árbol
-El armadillo come la fruta de guanábana del monte
-Tiene paludismo
-Dale de comer la yema del huevo al pihuicho para que tenga bonito plumaje
-El perro comió la patarashca
-Aprende a hacer patarashka
-Barre y bota la ceniza
-Construyó su casa con palmera
-El tapir que comía el fruto de yujach está corriendo
-En mi chacra tengo mucha fruta
-Nombre de una quebrada
-Los pollos andan juntos
-Los cuyes se multiplicaron
-Los niños son callejeros
-Trae yuca de la chacra
-Dale comida al niño
-El tigre es carnívoro
-Mi abuela está pintando la tinaja con la resina
-Corta la yanabara
-Maté al pájaro con cerbatana
-El niño no sabe nadar
-No te empolves, te vas a ensuciar
-Niño nadador
-Después de comer, enjuágate la boca
-Fue a comprar cepillo de dientes
-La vasija para tomar huayusa se guarda con cuidado
-El huanchaco es difícil de encontrar
-Saca las raíces de la ortiga
-Nadó para pescar zúngaro
-El niño empolvó a su hermana con ceniza
-No hay algo que se pueda comer
-Dame agua para tomar
-Viene la lluvia
-He sembrado calabaza
-Chinche de agua, larva de ditisco
-El chinche de agua no se come
-Depósito para sacar agua
-El señor bendijo al joven
-El señor está maldiciendo
-Yo saco agua del pozo
-El limón no tiene jugo
-Invitame caldo de boquichico
-El zapote es muy dulce
-El tuétano del pollo es muy rico
-Tumba las palmeras que hay en la chacra
-Trajimos choclo
-En época de lluvia no se puede hacer chacra
-No derrumbes la planta de plátano
-Fueron varias personas a ver a los gringos que llegaron
-No tengo limón
-Está arrugado por la vejez
-Se le acerca porque tiene dinero
-Se acercan a la casa para entrar en la noche
-Sancochar yuca es fácil
-La tarea es facilita
-La ardilla es indomable
-El gato se alejó de la casa
-El guacamayo vuela fuerte
-Tiene un collar de lágrimas de rosario
-El bólido alumbra mucho
-Tu papá trajo comida
-El curuhuinse es comestible
-Se molesta a la hora de comer
-Se acerca la época de sequía
-Fue a ver la sepultura
-Aquí nunca llueve
-Me picó la isula
-Vendo pata-rashca de bagre
-Aplastarse por sí solo
-Se aplastó tumbando el árbol
-Namak abauji pakan utuamu
-El árbol al caer aplastó la casa
-El árbol tapó el camino
-Se bucea en la cocha
-¡Hola como estas¡
-Buenos Días (amaneció bonito día)
-Buenas Tardes
-Buenas Noches
-Ya es tarde
-Muy temprano
-Mañana vengo
-En la tarde te visito
-Donde vives
-¿Es lejos tu casa?
-Con quien has venido
-¿Cómo has llegado?
-Está lloviendo
-Hace mucho calor
-Tengo mucho frío
-¿Se va a su chacra?
-¿Viene de su chacra?
-Ya me voy
-Chau
-Adiós
-Hasta luego
-Muchas gracias
-Discúlpame
-Por favor
-Puedo entrar
-Nos veremos otro día
-No vengan mañana
-Te espero sin falta
-Pasa y siéntate
-Vamos a comer
-¡Ándate¡
-¡No te quiero¡
-Te haré algunas preguntas
-¿Cuantos años tienes?
-¿En qué trabajas?
-¿Qué haces a diario?
-¿De dónde eres?
-¿De dónde  vienes ahora?
-¿Cuánto tiempo has estado en ese pueblo?
-¿Tienes esposo?
-¿Tienes esposa?
-¿Cuantos hijos tienes?
-¿Sabes escribir?
-¿Con quién vives aquí?
-¿Con quién has venido?
-¿Porqué has venido?
-¿Para qué has venido?
-¿Cuándo has venido aquí?
-¿Estás enfermo?
-¿Qué tiene tu niño?
-¿Qué edad tiene tu niño(a)?
-¿Está vacunado tu niño(a)?
-¿Cuándo fue la ultima vez que lo vacunaste?
-¿Donde fue que lo vacunaste?
-¿Desde cuando estas enfermo?
-¿Cuanto tiempo hace que estas enfermo?
-¿Con que estas enfermo?
-¿Hasta que día estuviste sano?
-¿Ahora que es lo que más te molesta? ¿Que parte?
-¿Muéstrame donde te duele?
-¿Como te duele? ¿Como es el dolor?
-¿Te arde?
-¿O como es?
-¿Tienes mucho frió?
-¿Tienes mucho calor?
-¿Sudas mucho?
-¿Por las tardes?
-¿Por las noches?
-¿Todo el día?
-¿Tienes escalofríos?
-¿Te sacude el cuerpo?
-¿Tienes fiebre?
-¿Te ha mordido el murciélago?
-¿Te ha mordido la serpiente?
-¿Te ha salido sangre?
-¿Tienes mareos?
-¿Te has caído?
-¿Vamos  conmigo?
-Ven
-¿Esta tu niño enfermo de susto?
-¿Tu niño esta kutipado?
-A tu niño lo has soleado mucho por eso tiene fiebre
-¿Se ha caído tu niño?
-¿Tienes asco?
-¿Te ha chocado el embarazo?
-¿Tienes antojos?
-¿Vomitas mucho?
-Que te duele
-Donde te duele
-¿Te duele mucho?
-¿Sientes mucho dolor?
-¿Desde cuando estas con ese dolor?
-¿Has tomado algo?
-¿Estas con la dieta?
-Señálame el lugar donde te duele
-¿Cuantos días  estas con ese dolor?
-¿Estas trabajando normal?
-¿Estas en descanso?
-¿Puedes caminar?
-¿Tienes mucho sueño?
-¿No puedes dormir?
-¿Tienes ganas de comer?
-¿Sientes hambre?
-¿Tienes sed?
-Masato (bebida)
-Chapo (bebida de platano)
-¿Quieres levantarte?
-¿Sientes pena?
-¿Quieres llorar?
-¿Tienes miedo?
-¿Tienes tos?
-Expectoras? Botas flema?
-De que color es u expectoración?
-¿Has  arrojado sangre después de toser?
-¿Te duele la espalda?
-¿Tienes dificultades para respirar?
-¿Te duele el tórax cuando respiras?
-¿Te cansas rápido cuando caminas?
-¿Tienes palpitaciones?
-¿Te duele el corazón?
-¿Se hinchan tus pies por la tarde?
-¿Te duelen las piernas cuando caminas?
-¿Te duelen las piernas cuando estas de pie?
-¿Tienes dificultad para tragar (comer)?
-¿O te duele cuando tragas?
-¿Tienes nauseas?
-¿Tienes vómitos?
-¿Has vomitado?
-¿Has vomitado con sangre?
-¿Te duele el estómago?
-¿Tienes gases?
-¿Tienes diarreas?
-¿Estas con diarrea?
-¿Estas estreñido?
-¿De que color son tus de posiciones?
-¿Has arrojado sangre?
-¿Tiene sangre tu deposición?
-¿Son negras?
-¿Tienes moco?
-¿Son blancas?
-¿Ha botado parásitos?
-¿Como eran los parásitos?
-¿Te duele el hígado?
-¿Te duele la región lumbar?
-¿Orinas a cada rato?
-¿Tu orina es como lavado de carne?
-¿Has orinado sangre?
-¿Sientes ardor cuando orinas?
-¿Menstruas a cada mes?
-¿Estas menstruando?
-¿Por cuantos días menstruas?
-¿Cuando fue la última menstruación?
-¿Cuando fue el primer día?
-¿Cuándo fue el último día?
-¿Tienes descensos?
-¿Tienes prurito vulvar? Te pica tus partes (te rascas)
-¿Desde cuando no le viene la menstruación?
-¿Estas embarazada?
-¿De cuantos meses?
-¿Has abortado?
-¿Cuantos abortos has tenido?
-¿Donde se controla su embarazo?
-¿Cuantos hijos vivos tienes?
-¿Cuantos hijos muertos tienes?
-¿De que murieron sus hijos?
-¿Cuando ha sido tu último parto?
-¿Ha sangrado mucho en ese parto?
-¿El nacimiento de tu bebe fue de cabeza o poto?
-¿Se quedo la placenta?
-¿Cual de tus hijos nació con mayor peso?
-¿Cuál de tus hijos nació con menor peso?
-Acude a una Posta de Salud si tienes:
-Fiebre
-Dolor o ardor para orinar
-Si tu niño no se mueve por varias horas
-Si tienes dolor en e l vientre
-Si has sangrado por tu vagina
-Si has perdido liquido por tu vagina
-Si se ha hinchado las piernas
-Si se hincha cara  - manos
-Si te duele mucho la cabeza
-Si te sientes enferma
-¿Se mueve tu bebe?
-¿Desde cuando no se mueva tú bebe?
-¿Ha perdido líquido  por la vagina?
-¿Ha perdido sangre por la vagina?
-¿Cuando empezaron los dolores más  seguidos?
-¿Tienes sonidos en los oídos?
-¿Vez como estrellitas?
-¿Cuando caminas te duele las piernas?
-¿Te duele la cintura?
-¿Tienes dificultades para caminar?
-¿Te duele alguna articulación?
-¿Escuchas ruidos cuando te mueves?
-¿Se te hincha los dedos?
-¿Sientes dolor de huesos?
-¿Te duele la cabeza?
-¿Puedes dormir?
-¿Se ha adormecido alguno de tus miembros?
-¿Tienes temblores?
-¿Te tiemblan las manos?
-¿Sientes mareos?
-¿A veces hablas incoherencias?
-¿Le duele la muela al frío o calor?
-¿Se le ha hinchado la cara?
-¿Sus heridas cicatrizan rápido?
-¿A tomado algún medicamento?
-¿A tomado alguna planta?
-¿Le duele al pasar la saliva?
-¿Estas heridas que tiempo lo tiene?
-¿Le a tratado antes un dentista?
-¿Que tiempo?
-¿Como se cuida sus dientes?
-¿Desde cuando estas así?
-Enséñame el diente que te duele
-¿Quieres sacarlo?
-¿Quieres curarlo?
-Siéntate
-Siéntense
-Párate
-¡Párense!
-Arrodillate
-Camina
-Caminen
-Camina rápido
-Sube
-Salten
-Salta
-Bájate
-Muévete
-No te muevas
-Empalma las manos
-Échate, acuéstate
-Échense
-Ladéate (ponte de costado)
-Levanta la cabeza
-Baja la cabeza
-Agachate
-Levanta las manos
-Respira
-No respires
-Hincha tu vientre
-Suelta tu vientre
-Puja
-Mueve tus dedos
-Levanta las nalgas
-Abre los brazos
-Abra las piernas
-Estira los pies
-Remángate
-Desnúdate
-Quítate la truza
-Quítate los pantalones
-No llores
-Descansa
-No trabajes
-No duermas
-Duerme
-No comas
-Come bastante
-No orines
-Orina al amanecer
-No botes tu orina
-No te levantes
-Toma liquido
-No tomes Masato
-No comas ají
-No comas salado
-No camines mucho
-No comas pan
-No comas grasa
-Toque la mesa
-Siéntense tranquilos
-Vamos conmigo
-Vamos todos
-Vienes solo(a)
-No digan nada
-No digas nada
-Abre la boca
-Cierra la boca
-Por favor no escupir al piso
-Niño - varón
-Niña – mujer
-Mujer - adulta
-Hombre
-Es tu esposa?
-Mi esposa
-Mi esposo
-Amigo
-Hermano
-Papá
-Mamá
-Abuelo ó anciano
-Abuelo
-Abuela
-Padre, tío paterno (hermano del padre)
-Tío materno (hermano de la madre)
-Madre, tía
-Suegro
-Suegra
-Primo (de hombre) hijo del tío materno, cuñado ( de hombre
-Hermana (de mujer), prima (de mujer, hija del tío paterno)
-Hermano (de hombre), primo (de hombre)
-Prima de mujer (hija del tío materno, diich)
-Hermano, - a (entre hombre y mujer), primo, - a (entre hombre y mujer, hijo, - a del tío paterno, apág)
-Primo, - a (entre hombre y mujer, hijo, - a  del tío materno, diich,  conyuge potencial)
-Cuñado, - a (entre hombre y mujer)
-Hijo
-Sobrino (hijo de yatsúg)
-Niña, hija, sobrina (hija de kaíg)
-Sobrino (hijo de sáig o de antsúg)
-Sobrina (hijo de yuág o de antsúg)
-Sobrino, - a  (hijo, - a  de ubág, yerno o nuera, cónyuge de hijo, - a)
-Nieto, - a
-Bisnieto, - a
-Cabeza
-Frente
-Cara
-Nariz
-Ojos
-Pestaña
-Labio
-Lengua
-Dientes
-Muela
-Encía
-Laringe
-Oído
-Pelo
-Nuca
-Cerebro
-Espalda
-Columna
-Costillas
-Seno
-Pulmón
-Brazos
-Sobaco (axila)
-Manos
-Dedos
-Páncreas
-Estómago
-Barriga
-Vejiga
-Vientre
-Pubis
-Músculo de la parte anterior  del muslo
-Músculo (del muslo)
-Músculo redondo interno de la pantorrilla
-Muslo
-Muslo trasero
-Nalga
-Nervio
-Pierna
-Piel
-Dale solo lactancia materna a tu niño hasta los 06 meses
-Alimenta bien a tu niño
-Abriga bien a tu niño
-Vacuna a tu niño
-Si tu niño tiene fiebre llévalo urgente a la posta de salud
-Si tu niño está agitado llévalo urgente a la posta de salud
-Si tu niño no  puede respirar llévalo urgente a la posta de salud
-Si tu niño vomita todo llévalo urgente a la posta de salud
-Si tu niño no quiere despertar llévalo urgente a la posta de salud
-Si tu niño se pone morado llévalo urgente a la posta de salud
-Si tu niño esta enfermo y tienes dudas llévalo urgente a las posta de salud
-Toma agua hervida
-Lávate las manos antes de comer
-Lávate las manos después de ir al baño
-Consume alimentos o frutas bien cocinados o lavados
-Tapa los alimentos
-Lava bien los alimentos antes de consumirlos
-Lava los tus platos y cucharas antes consumir los alimentos
-No consumas comidas guardada
-Mantenga limpios a sus hijos
-Cuida que tus hijos no coman tierra
-Si tienes diarrea, tome abundante liquido
-Si tienes diarrea acuda a la posta de salud
-Si tu niño tiene diarrea no le quite los alimentos
-Si tu niño esta lactando, dale pecho mas  seguido
-Una pastilla desayuno almuerzo y cena por 7 dias
-Dos pastillas juntas
-Media pastilla
-Tomar todo el jarabe
-Una gota en el ojo
-Frotarse con la crema
-Una cuchara grande desayuno almuerzo y merienda
-Una cuchara pequeña desayuno almuerzo y merienda
-Una pastilla diaria
-Una ampolla cada tres meses
-Un ovulo por la noche
-señalización
-Paquete niño - adolescente
-Paquete mujer
-Paquete adulto – adulto mayor
-Consultorio
-Farmacia
-Triaje
-Tópico
-Laboratorio
-Odontología
-Punto de digitación
-Neonatología
-Sala de partos
-Hospitalización
-Sala de dilatación
-Sala de espera
-Servicios higiénicos
-Residencia
-Vientre abultado por el embarazo
-Adelgazado, adelgazada
-Causar adelgazamiento
-Adelgazar
-Adelgazarse
-Adormecer
-Agonizar
-Ahorcarse
-Alocarse
-Alteradamente
-Alumbramiento
-Alto
-Amebiasis
-Que tiene amebiasis (persona)
-Tener ampolla
-Ampollarse
-Anémico, anémica
-Antojo
-Enfermarse la  gente  por  no  satisfacer  un antojo
-Tener antojo de alguna comida
-Artritis
-Tener ceguera y artritis
-Asfixiarse
-Bronquitis
-Brujería
-Brujo maligno
-Enfermedad causada por un brujo
-Materia  flemosa  que  extrae  el  brujo  de  su cuerpo.
-Caerse rodando.
-Calmar el dolor
-Calmar el hambre
-Calmar la fiebre
-Calmar la sed
-Calmar lentamente
-Castigar con un puñetazo dejando un moretón como resultado del golpe
-Castrado
-Castrar
-Chucaque
-Chupo
-Cicatriz
-Que tiene cicatriz al secarse.
-Cicatrizado,  cicatrizada  (en  proceso  de  ser sanado)
-Cicatrizar
-Ciego, ciega.
-Colerico, colerica
-Cólico (estomacal)
-Conjuntivitis
-Conjurado, conjurada
-Conjurar
-Conjuro
-Contagiado, contagiada
-Contagiar
-Contagiarse
-Contagio
-Contagioso, contagiosa
-Cortar el cuero cabelludo (castigo por cometer adulterio)
-Cortarse con algún objeto filudo
-Cortarse con hacha o machete
-Costra
-Curación
-Curarse con medicina tradicional
-Cuerpo
-Cutipado, cutipada (victima de maleficio)
-Cutipar ( a la criatura)
-Cutiparse
-Causar daño con brujeria
-Causar daño, hacer daño
-Chato(a)
-Enfermarse por un daño
-Hacer debilitarse
-Defecar
-Defecar heces con sangre
-Desdentado, desentada (mito)
-Destetar
-Destripar
-Diarrea
-Diente
-Dolencia
-Doler
-Dolor
-Causar dolor
-Causar dolor  muy intenso, hacer sentir dolor
-Causarse dolor
-Dolor con hinchazón causado por una espina o aguja.
-Dolor de parto
-Producir dolor
-Provocar dolor
-Sentir dolor, tener dolor
-Tener dolores de parto
-Dolorosa, dolorosa
-Embarazada
-Embarazar
-Embarazo
-Ausencia  de la menstruación causada por el embarazo.
-Embrujar
-Encinta
-Encolerizar
-Enema
-Limpiar el estomago con enema
-Enfermarse
-Enfermarse de susto (un niño)
-Enfermarse en forma incurable
-Enfermarse por no lograr comer lo deseado (un animalito)
-Enfermarse por no satisfacer un antojo
-Enfermedad
-Enfermedad causada por un brujo
-Enfermedad de los ojos.
-Enfermizo, enfermiza
-Ser enfermizo
-Enfermo, enferma
-Estar enfermo
-Estar enfermos
-Estar gravemente enfermo a causa de una comida que le hizo daño
-Enflaquecer
-Enflaquecerse
-Epidemia
-Eructar
-Espermatozoide
-Esqueleto
-Estimulante sexual para los ancianos
-Estornudar
-Estreñir
-Expirar
-Que esta por expirar
-Eyacular
-Hacer eyacular
-Fallecimiento
-Estar feliz
-Finado, finada
-Flaco (a)
-Flema
-Flemoso, flemosa
-Fontanela
-Fortificante
-Forúnculo
-Fracturado, fracturada
-Fracturar
-Ganglio del cuello o de la ingle
-Gatear
-Gestación
-Estado de gestación
-Gestante
-Gestar
-Golpe
-Dar golpe con la rodilla
-Hacer botar sangre de golpe
-Golpeado, golpeada
-Golpear
-Golpear con el dedo doblado
-Golpear con fuerza
-Golpear con machete, mano, palo
-Golpear contra el suelo
-Golpear jugando
-Golpearse con alguien
-Golpearse con fuerza
-Golpearse el cuerpo con  las manos
-Gordo (a)
-Que se golpea por si solo
-Gripe
-Hepatitis
-Herida
-Herido, herida
-Herir
-Herir a alguien psicológicamente
-Hiel
-Hígado
-Hipo
-Infección
-Inyectar
-Jorobado, jorobada
-Lagaña, legaña
-Lagrima
-Leche
-Leishmaniasis
-Lesion
-Lunar
-Malaria
-Mancha blanca de granos que aparece en la piel a causa de la enfermedad pinta.
-Medicina
-Medicina tradicional propia de la aguaruna
-Medicinar
-Medicinar con medicina tradicional, propia de la cultura aguaruna
-Medicinarse  (con medicina tradicional)
-Medico
-Ir al medico para ser sanado
-Llevar a un enfermo al medico
-Medico  (medicina tradicional)
-Medula
-Mejilla
-Meningitis
-Moco
-Sacar la muela
-Muerte
-Dar muerte
-Estar en víspera o al borde de la muerte
-Muerte de una persona
-Muerte de varias personas , ir acabándose o menguando poco a poco por la muerte
-Que esta en víspera de al muerte
-Muerto, muerta
-Casi muerto
-Músculo de la parte anterior  del muslo
-Músculo (del muslo)
-Músculo redondo interno de la pantorrilla
-Muslo
-Muslo trasero
-Nalga
-Nariz
-Náusea
-Neumonía
-Orina
-Oxiuros
-Paludismo
-Pastillas
-Tomar pastillas
-Pedo
-Hacer perder la virginidad
-Pierna
-Placenta
-Hacerse crecer   pubis con tratamiento vegetal (se refiere a la mujer)
-Pulmonía
-Pus
-Sacar pus
-Salir pus
-Quejarse lastimeramente
-Quejido
-Quemado,  quemada
-Quemarse
-Salud
-Buen estado de salud
-Saludable
-Acto de sanar
-Sanarse
-Placenta
-Hacerse crecer   pubis con tratamiento vegetal (se refiere a la mujer)
-Pulmonía
-Pus
-Sacar pus
-Salir pus
-Quejarse lastimeramente
-Quejido
-Quemado,  quemada
-Quemarse
-Salud
-Buen estado de salud
-Saludable
-Acto de sanar
-Sanarse
-Sanarse  la herida
-Sangrar
-Sangre
-Sarampión
-Sarna
-Sarnoso, sarnosa
-Semen
-Sepulcro
-Sepultar
-Permitir a otros tener relaciones sexuales
-Tener relaciones sexuales
-Sobaco
-Sobar
-Suicidarse
-Suicidio
-Varicela
-Vello
-Sin vellos
-Tener mucha vellosidad
-Verruga
-Vida
-Que esta en sus últimos días de vida
-Sumir el vientre
-Viruela
-a
-Si
-No
-Que
-Más
-Tener
-Quien
-¿Como?
-¿Cuando?
-¿Porque?
-¿Donde?
-Ven
-Uno
-Dos
-Tres
-Cuatro
-Cinco
-Seis
-Siete
-Ocho
-Nueve
-Diez
-Once
-Doce
-Trece
-Catorce
-Quince
-Dieciséis
-Diecisiete
-Dieciocho
-Diecinueve
-Veinte
-el sol ha salido
-el sol se ha alzado
-el sol esta está casi entre los dos
-medio día
-el sol esta listo para declinar
-cuando es tarde
-el sol se pone
-se ha oscurecido
-el sol se ha escondido
-medianoche
-el día visita
-amanece
-Buenos días
-¿Cómo estás?
-Gracias
-Muy bien gracias
-¿Y usted?
-Muy bien
-Hola
-Yo bien
-¿Dónde vives tú?
-Yo vivo en el Jr.
-Nos vemos
-Ya.
-Corona
-Collar
-Arete de plumas
-Tambor
-Cinta para pelo
-¿Cómo está su esposo?
-Mi esposa está bien, gracias.
-¿Cómo está su hijo?
-Mi hijo está enfermo.
-¿Dónde estudias?
-Yo estudio en la Universidad
-¿Quién es el apu aquí?
-El apu es
-¿Vas a ir a Tutumberos?
-Si claro por supuesto.
-¿Quién es el?
-préstame
-Ayúdame
-Feliz cumpleaños
-Quisiera pasear
-¿Qué hora es?
-Te quiero
-vamos a la danza
-por ti
-amor
-amorcito
-Bichuchi blanco
-Bichuchi amarillo
-Grano de oro
-Plátano de freír
-Plátano de seda
-Plátano isleño
-Sachapapa
-Daledale amarillo
-Daledale blanco
-Serma
-Zapallo
-Yacón silvestre
-Caña de azúcar
-Cocona
-Coconillo
-Bituca
-Camote
-Yuca
-Papaya
-Almendra
-Chupe
-Sacha mango
-Huacambo
-Huacambillo
-Chambira
-Huicungo
-Chimico grande
-Chimico chico
-Ovilla
-Hungurabi
-Pijuayo
-Aguaje
-Huasé
-Pan de árbol silvestre
-Leche caspi
-Zapote
-Shapaja morado
-Shapaja amarillo
-Algodón
-Corteza de árbol
-Fibra de chambira
-blanco
-negro
-azul marino
-rojo
-verde
-amarillo
-celeste
-guinda
-Hermana Mercedes, en la radio escuché a una persona hablar sobre los “conocimientos colectivos” de los pueblos indígenas
-¿Tú sabes sobre eso?
-Sí, Segundo.
-Yo asistí a una capacitación sobre ese tema hace muchos años, y aprendí que los conocimientos colectivos, o saberes ancestrales, son toda la sabiduría que hemos desarrollado los pueblos indígenas andinos y amazónicos por muchos años.
-Es la sabiduría que se hemos generado en nuestra relación con la naturaleza y que usamos en nuestra vida diaria.
-¿Y cómo aprendemos esa sabiduría?
-La aprendemos de nuestros padres y abuelos, y, a su vez, ellos la aprendieron de sus antepasados;
-es decir, heredamos nuestra sabiduría de generación en generación.
-Son conocimientos que, con el tiempo, sufren algunos cambios porque se van adaptando a las diversas necesidades que tenemos.
-Te entiendo.
-¿Y dónde podemos ver esos conocimientos colectivos?
-Los conocimientos colectivos se expresan de muchas maneras.
-Por ejemplo, a través de tejidos, danzas, canciones, ceremonias, artesanías, recetas de cocina, usos de plantas medicinales, técnicas de caza y cultivo, maneras de cultivar y cuidar la tierra
-¡y muchas otras formas más!
-Uso de la maca para la fortaleza y la buena salud
-Uso de la uña de gato para la cicatrización de heridas
-Tablas de Sarhua
-- Ayacucho
-Siembra de agua en los Andes
-Arte Kené en cerámica shipibo
-Cuidados post parto de comunidades indígenas
-¿Quiénes pueden usar los conocimientos colectivos, Mercedes?
-Los conocimientos colectivos se vienen usando a lo largo de la historia por los pueblos indígenas;
-pero, además, pueden ser practicados por otros grupos de personas en beneficio de la humanidad.
-Por ejemplo, muchas plantas medicinales descubiertas por los pueblos indígenas han sido, y siguen siendo, utilizadas también para fabricar medicamentos.
-Pero, ojo, Segundo, aun siendo usados por otros,
-¡esos conocimientos siguen siendo nuestros!
-¡Los conocimientos colectivos forman parte de nuestra identidad y nos ayudan a subsistir, por eso tenemos que cuidarlos!
-¿Y cómo podemos hacer para cuidar y proteger nuestros conocimientos colectivos?
-Así como tenemos derecho a la identidad cultural, derecho a la tierra y al territorio, y derecho a la consulta previa, los pueblos indígenas tenemos también derecho a la propiedad de nuestros conocimientos colectivos.
-¿Y, en qué consiste ese derecho?
-Consiste en que nuestros conocimientos colectivos se protejan de modo que otros no puedan apropiarse de ellos.
-Nadie puede usar nuestros conocimientos, y si alguien lo hace nos debe pedir permiso o puede tener una sanción.
-¡Tenemos que hacer que se respeten nuestros derechos!
-Existen respaldos nacionales e internacionales.
-Por ejemplo, en el Perú, desde el año 2002, existe la Ley 27811 (“Régimen de Protección de los Conocimientos Colectivos de los Pueblos Indígenas Vinculados a los Recursos Biológicos”) que tiene como objetivo garantizar la protección de los conocimientos colectivos de los pueblos indígenas.
-La ley de protección de los conocimientos colectivos incluye varias herramientas como:
-- El consentimiento informado previo,
-- La posibilidad de suscribir contratos de licencia de uso,
-- Sancionar a quienes revelen, adquieran o usen nuestro conocimiento colectivo sin nuestro consentimiento y de manera desleal.
-- Preservar nuestros conocimientos colectivos a través de los Registros.
-¿Y qué tipos de conocimientos colectivos protege la Ley 27811?
-¿Cómo hace la ley para proteger los conocimientos colectivos?
-La ley tiene diversas formas de proteger nuestros conocimientos colectivos:
-por ejemplo, lo hace a través del “consentimiento informado previo”, a través de los “contratos de licencia de uso” o a través de las sanciones a quienes no respeten nuestros derechos.
-Ya.
-¿Y qué sería lo del “consentimiento informado previo”?
-El consentimiento informado previo es la autorización que podemos otorgar los pueblos indígenas a otras personas, para que se conozca y haga uso de alguno de nuestros conocimientos colectivos.
-El objetivo del “consentimiento informado previo” es garantizar que se dé acceso a nuestros conocimientos colectivos de forma correcta.
-Los pueblos indígenas debemos tomar la decisión de si deseamos o no compartir nuestros conocimientos colectivos bajo ciertas condiciones.
-Ya entendí.
-Ahora explícame sobre los “contratos de licencia de uso”.
-Son acuerdos legales que se realizan entre los representantes de los pueblos indígenas que tienen un conocimiento colectivo y otras personas, como empresarios, que quieren beneficiarse económicamente de esos conocimientos.
-¿Y cómo se hacen esos contratos?
-La persona que está interesada en usar con fines comerciales los conocimientos colectivos tiene que informarle a la comunidad lo que piensa hacer con esos conocimientos, y tiene que pedirle permiso para su uso.
-Si la comunidad dice que sí, podrá suscribir el contrato de licencia.
-¿Cómo así “condiciones”?
-Por ejemplo, el tipo de compensación que recibirá la comunidad;
-o cada cuánto tiempo se tiene que informar sobre los avances del estudio;
-o lo que se esté fabricando con nuestros conocimientos.
-¿Qué debería tener un contrato de licencia de uso?
-Los contratos de licencia de uso deben tener los siguientes elementos:
-a) La identificación de los que intercambian el conocimiento colectivo.
-b) La descripción del conocimiento colectivo.
-c) El establecimiento de las compensaciones que recibirán los pueblos indígenas.
-d) La información sobre los objetivos, riesgos e implicancias de la actividad que se realizará con los conocimientos colectivos.
-e) La obligación de informar periódicamente al pueblo indígena acerca de los avances de su actividad.
-f) La obligación de contribuir al fortalecimiento de las capacidades de los pueblos indígenas en relación con sus conocimientos colectivos.
-Ahora me queda claro también lo de los contratos.
-Solo falta que me cuentes un poquito sobre las “sanciones”...
-Bueno, eso es para cuando otras personas revelen, adquieran o usen nuestro conocimiento colectivo sin nuestro consentimiento y de manera desleal.
-¿Y qué sucede cuando alguien revela o se apropia de manera ilegal de nuestros conocimientos?
-"Cuando eso ocurre, el Instituto Nacional de Defensa de la Competencia y de la Protección de la Propiedad Intelectual (Indecopi) puede aplicar una sanción de multa de hasta 150 UIT."
-¿Entonces, por qué son importantes el consentimiento informado previo, los contratos de licencia de uso y las sanciones?
-¡Pues sucede que muchas personas vienen de fuera y se llevan nuestros conocimientos sin permiso y, además, ganan dinero y no nos dejan nada!
-Y Mercedes, te cuento que otra forma de proteger nuestros conocimientos colectivos se hace con los “Registros de conocimientos colectivos” que elabora Indecopi con la ayuda de los pueblos indígenas, contribuyendo así a preservar y a salvaguardar nuestros conocimientos evitando que se pierdan en el tiempo.
-Pero eso del Registro parece difícil...
-¿Cómo registramos nuestros conocimientos colectivos ante el INDECOPI?
-No Mercedes, en realidad es bastante fácil.
-Mira, te lo explico así:
-Las solicitudes de Registro de conocimientos colectivos de los pueblos indígenas se presentan al INDECOPI y deben tener la siguiente información:
-a) La identificación del pueblo indígena que solicita el Registro de sus conocimientos;
-b) La identificación del representante del pueblo indígena;
-c) El nombre del recurso biológico (¡incluso puede ser el nombre indígena!) sobre el cual tenemos el conocimiento colectivo;
-d) La indicación del uso que se da al recurso biológico;
-e) Una descripción completa del conocimiento colectivo; y
-f) Un acta que muestra el acuerdo de registrar el conocimiento por parte del pueblo indígena.
-Pero seguro eso debe ser caro, María...
-Mercedes, presentar las solicitudes de Registro al Indecopi no cuesta nada, es gratis, y además ellos nos ayudan a facilitar el proceso.
-Mira, aquí hay un ejemplo de la información que se presenta, para que te orientes:
-PASO DEL PROCEDIMIENTO
-IDENTIFICACIÓN DE PUEBLO INDÍGENA
-IDENTIFICACIÓN DE REPRESENTANTE DEL PUEBLO INDÍGENA
-NOMBRE DEL RECURSO BIOLÓGICO
-USOS QUE SE LE DA AL RECURSO BIOLÓGICO
-DESCRIPCIÓN DEL CONOCIMIENTO COLECTIVO
-Ejemplo
-Pueblo: Jaqaru
-Comunidad Campesina: Pukarumy
-Departamento: Puno
-Marcelo Chilique Mondragón
-Sangre de Grado - Croton lechleri
-Cicatrizante de heridas
-La resina de la planta se extrae y se aplica sobre la herida
-Ya entendí todo lo que me dijiste.
-Solo me queda una duda:
-tú me hablaste también de respaldos internacionales para la protección de nuestros conocimientos colectivos.
-¿Cuáles serían esos respaldos?
-Yo te digo, Mercedes:
-uno de los más importantes respaldos internacionales para la protección de nuestros conocimientos colectivos es el Protocolo de Nagoya de las Naciones Unidas, que dice cómo debe ser la distribución de los beneficios cuando se usan nuestros conocimientos colectivos.
-¿Y qué dice el Protocolo?
-Entre otras cosas, reconoce nuestro derecho a participar en las decisiones sobre los beneficios del uso de nuestros conocimientos colectivos, de manera que el proceso sea justo.
-¿Y nuestro país tiene que cumplir lo que dice este Protocolo?
-Sí, el Perú ha ratificado este Protocolo el 2014, así que el Estado tiene que cumplir con sus objetivos, y eso se hace, por ejemplo, a través de la Ley 27811.
-Veamos qué instrumentos nacionales e internacionales protegen los derechos de los pueblos indígenas:
-Ámbito Internacional
-- El Convenio de la Organización Internacional del Trabajo sobre Pueblos Indígenas y Tribales en Países Independientes (OIT, 1989).
-- La Declaración de las Naciones Unidas sobre los Derechos de los Pueblos Indígenas (ONU, 2007).
-- La Declaración Americana sobre los Derechos de los Pueblos Indígenas (OEA, 2016).
-- El Protocolo de Nagoya sobre Acceso a los Recursos Genéticos y Participación Justa y Equitativa en los Beneficios del Convenio de Diversidad Biológica (ONU, 2010).
-Ámbito Nacional
-- Ley de Comunidades Nativas y de Desarrollo Agrario de la Selva y de Ceja de Selva - Decreto Ley 22175 (año 1978), y su reglamento (año 1979).
-- Ley General de Comunidades Campesinas - Ley 24656 (año 1987) y su reglamento (año 1991).
-- Ley del Derecho a la Consulta Previa a los Pueblos Indígenas u Originarios, reconocido en el Convenio 169 OIT Ley 29785 (año 2011) y su reglamento (año 2012).
-- Ley que establece el Régimen de Protección de los Conocimientos Colectivos de los Pueblos Indígenas Vinculados a los Recursos Biológicos - Ley 27811 (año 2002).
-- Ley de Protección al Acceso a la Diversidad Biológica Peruana y los Conocimientos Colectivos de los Pueblos Indígenas - Ley 28216 (año 2004)
-Indecopi:
-- El Instituto Nacional de Defensa de la Competencia y de la Protección de la Propiedad Intelectual (Indecopi) es la Autoridad Nacional Competente y tiene entre sus funciones proteger y registrar los conocimientos colectivos de los pueblos indígenas.
-- En caso de que se revelen, adquieran o usen los conocimientos colectivos sin el consentimiento de los pueblos indígenas y de manera desleal, tiene la potestad de aplicar una sanción de multa de hasta 150 UIT.
-- Brinda asesoría a los pueblos indígenas para el registro y protección de sus conocimientos colectivos.
-Ahora ya sabemos cómo podemos proteger nuestros conocimientos colectivos y qué respaldos legales existen.
-¡Tenemos que hacer que se respeten nuestros derechos!
-SOLUCIÓN DE DISCREPANCIAS ENTRE PUEBLOS INDÍGENAS U ORIGINARIOS
-Hola, hermano Moisés, veo que estás de regreso del viaje que hiciste,
-¿cómo te fue?
-Hola, hermana Nancy.
-Me fue bien, pero me he enterado de que en ese pueblo indígena están negociando con unas personas que representan a una empresa.
-¿Cómo así, Moisés, de qué negociación se trata?
-Es que la empresa quiere hacer unas cremas de ungurahui usando los conocimientos colectivos del pueblo.
-Pero en nuestro pueblo indígena también sabemos cómo usar el ungurahui y
-¡nadie nos ha preguntado nada!
-Sí, hermana, lo mismo estaba pensando yo,
-¿qué dirán nuestras sabias y nuestros sabios de esto?
-Hola, sobrina y sobrino.
-Les he estado escuchando y, sí, tienen razón.
-Ustedes están hablando del uso de nuestros conocimientos colectivos sobre recursos biológicos.
-Les explico:
-CONOCIMIENTOS COLECTIVOS
-- Los conocimientos colectivos, o saberes ancestrales, son toda la sabiduría que hemos desarrollado los pueblos indígenas andinos y amazónicos por muchos años, y que aprendemos de nuestros padres, madres y abuelos y abuelas.
-- Es una sabiduría que los pueblos indígenas hemos generado en nuestra relación con la naturaleza y que usamos en nuestra vida diaria.
-- Los conocimientos colectivos asociados a los recursos biológicos son aquellos conocimientos que los pueblos indígenas tenemos sobre los usos que les damos a los elementos vivos de la naturaleza, como las plantas y los animales.
-- El uso medicinal y cosmético del ungurahui es un ejemplo de conocimiento colectivo asociado a recursos biológicos.
-Antes me explicaron que, si un pueblo indígena quiere negociar sobre el uso de sus conocimientos colectivos, tiene primero que informar al mayor número posible de pueblos indígenas que también posee ese conocimiento.
-¿Y eso por qué se hace, tía Yolanda?
-Porque nosotros somos un pueblo indígena que también posee ese conocimiento, y por eso, se deben tomar en cuenta nuestros intereses e inquietudes, especialmente las relacionadas con nuestros valores espirituales y creencias religiosas.
-¿QUIÉNES SOMOS LOS PUEBLOS INDÍGENAS?
-- Los pueblos indígenas existimos antes de la conquista, la colonia o del establecimiento del Estado.
-- Los pueblos indígenas mantenemos todas nuestras tradiciones culturales, o parte de ellas.
-- Los pueblos indígenas nos reconocemos a nosotros mismos como indígenas. Es decir, poseemos una identidad indígena.
-- Los pueblos indígenas podemos organizarnos en comunidades campesinas en los Andes, así como en comunidades nativas en la Amazonía.
-¿Y qué debemos hacer ahora?,
-¿cómo lo solucionamos con los hermanos y las hermanas del otro pueblo indígena?
-Bueno, esto podría tratarse de una discrepancia;
-es decir, cuando dos personas o grupos no pueden llegar a un acuerdo.
-Pero, tranquilo sobrino, los pueblos indígenas tenemos las herramientas para resolver esta situación.
-¿A qué te refieres, tía Yolanda?
-Lo que pasa es que, como pueblos indígenas, tenemos el derecho colectivo a conservar nuestras costumbres y nuestras instituciones, entre ellas, nuestras normas internas para resolver discrepancias.
-¿Qué quiere decir eso del derecho a conservar nuestras costumbres e instituciones, tía?
-Son todas las formas en que organizamos nuestra vida en comunidad;
-por ejemplo, la manera en que elegimos a nuestros representantes, nuestra economía, nuestra cultura, que incluye la manera de vestirnos, de hablar y, principalmente, nuestro derecho consuetudinario.
-¿Derecho consuetudinario, tía?
-¿Qué es eso?
-El derecho consuetudinario son las costumbres y prácticas propias que tenemos los pueblos indígenas para resolver nuestros problemas internos.
-Son normas de convivencia que no están escritas, pero que se cumplen porque se ha hecho costumbre cumplirlas a lo largo de nuestra historia.
-CARACTERÍSTICAS DEL DERECHO CONSUETUDINARIO:
-- Es considerado una parte integral del orden social y cultural de un pueblo.
-- Es un elemento principal de la identidad étnica de un pueblo indígena, nación o comunidad.
-- Es anterior al derecho oficial del Estado y puede adecuarse a los cambios culturales e institucionales de los pueblos indígenas.
-- Se reconoce y se comparte por un grupo (comunidad, pueblo o grupo étnico, etcétera).
-- Cada pueblo indígena puede tener su propio derecho consuetudinario. 
-- Son reconocidos por el Estado siempre que no contradigan los derechos humanos reconocidos a nivel nacional e internacional.
-Ya voy entendiendo, tía.
-Pero, en este caso, somos dos pueblos indígenas diferentes que tenemos el problema.
-Es verdad.
-En este caso, lo que podemos hacer es pedir ayuda a la organización indígena que nos representa y con quienes nos relacionamos de manera inmediata.
-Por ejemplo,
-¿podríamos ir a la federación local?
-Sí, ellos podrán ayudarnos a conversar para resolver la discrepancia.
-Solo tenemos que recordar que las normas tradicionales pueden variar entre los pueblos.
-¿Y si de todas maneras no llegamos a un acuerdo?
-En ese caso, podremos pedir apoyo a la organización regional o a la nacional.
-Lo importante es que cuando lleguemos a un acuerdo, todo debe quedar por escrito en un acta, como constancia de las decisiones a las que hemos llegado.
-¿Y qué pasaría si la discrepancia fuera entre comunidades de un mismo pueblo indígena?
-Las autoridades tradicionales de cada comunidad deben dialogar sobre la discrepancia y aplicar el derecho consuetudinario que hay en sus territorios.
-Si las autoridades no llegan a un acuerdo, podemos llamar a alguna de las organizaciones que representan a esas comunidades.
-Ya entiendo, pero en mi viaje escuché también que ellos mismos, dentro de la comunidad, están teniendo problemas para ponerse de acuerdo en la decisión final.
-Hermano Moisés, si tienen discrepancias internas, tendrían que recurrir al presidente o presidenta de la comunidad, quien les ayudará a resolver el caso con ayuda de los estatutos comunales, que están basados igualmente en el derecho consuetudinario.
-En este caso, también será importante colocar por escrito, en un acta, todas las decisiones que se tomen.
-Me va quedando claro tía Yolanda, pero me he dado cuenta de que, muchas veces, las mujeres somos excluidas de las decisiones en las comunidades.
-Es verdad Nancy.
-Aunque eso está cambiando, nuestras voces siguen siendo poco escuchadas.
-Es verdad que hay mucho por hacer.
-Es necesario que más mujeres se informen y participen en la toma de decisiones y en la solución de discrepancias.
-Así es Moisés, es importante que las mujeres participemos, sobre todo cuando se trata de conocimientos colectivos asociados a los recursos biológicos.
-Por ello, desde nuestros pueblos podemos y debemos promover la participación de las mujeres indígenas en los espacios de toma de decisión.
-¡Ahora ya conocemos nuestros derechos!
-¡Y ya sabemos qué podemos hacer uso de nuestro derecho consuetudinario para resolver nuestras discrepancias!
-MARCO LEGAL DEL DERECHO COLECTIVO A CONSERVAR LAS COSTUMBRES E INSTITUCIONES DE LOS PUEBLOS INDÍGENAS:
-- El Convenio 169 de la OIT sobre Pueblos Indígenas y Tribales en Países Independientes.
-- La Declaración de las Naciones Unidas sobre los Derechos de los Pueblos Indígenas.
-- La Declaración Americana sobre los Derechos de los Pueblos Indígenas. 
-- La Constitución Política del Perú.
-Cuando Paco Yunque y su madre llegaron a la puerta del colegio, los niños estaban jugando en el patio.
-La madre le dejó y se fue.
-Paco, paso a paso, fue adelantándose al centro del patio, con su libro primero, su cuaderno y su lápiz.
-Paco estaba con miedo, porque era la primera vez que venía a un colegio y porque nunca había visto a tantos niños juntos.
-Varios alumnos, pequeños como él, se le acercaron y Paco, cada vez más tímido, se pegó a la pared y se puso colorado.
-¡Qué listos eran todos esos chicos!
-¡Qué desenvueltos!
-Como si estuviesen en su casa.
-Gritaban.
-Corrían.
-Reían hasta reventar.
-Saltaban.
-Se daban de puñetazos.
-Eso era un enredo.
-Paco estaba también atolondrado porque en el campo no oyó nunca sonar tantas voces de personas a la vez.
-En el campo hablaba primero uno, después otro, después otro y después otro.
-A veces, oyó hablar hasta cuatro o cinco personas juntas.
-Era su padre, su madre, don José, el cojo Anselmo y la Tomasa.
-Con las gallinas eran más.
-Y más todavía con la acequia, cuando crecía… Pero no.
-Eso no era ya voz de personas, sino otro ruido, muy diferente.
-Y ahora sí que esto del colegio era una bulla fuerte, de muchos.
-Paco estaba asordado.
-Un niño rubio y gordo, vestido de blanco, le estaba hablando.
-Otro niño, más chico, medio ronco y con blusa azul, también le hablaba.
-De diversos grupos se separaban los alumnos y venían a ver a Paco, haciéndole muchas preguntas.
-Pero Paco no podía oír nada, por la gritería de los demás.
-Un niño trigueño, cara redonda y con una chaqueta verde muy ceñida en la cintura, agarró a Paco por un brazo y quiso arrastrarlo.
-Pero Paco no se dejó.
-El trigueño volvió a agarrarlo con más fuerza y lo jaló.
-Paco se pegó más a la pared y se puso más colorado.
-En ese momento sonó la campana, y todos entraron a los salones de clase.
-Dos niños —los hermanos Zumiga— tomaron de una y otra mano a Paco y le condujeron a la sala de primer año.
-Paco no quiso seguirlos al principio, pero luego obedeció, porque vio que todos hacían lo mismo.
-Al entrar al salón se puso pálido.
-Todo quedó repentinamente en silencio y este silencio le dio miedo a Paco.
-Los Zumiga le estaban jalando, el uno para un lado y el otro para el otro lado, cuando de pronto le soltaron y lo dejaron solo.
-El profesor entró.
-Todos los niños estaban de pie, con la mano derecha levantada a la altura de la sien, saludando en silencio y muy erguidos.
-Paco, sin soltar su libro, su cuaderno y su lápiz, se había quedado parado en medio del salón, entre las primeras carpetas de los alumnos y el pupitre del profesor.
-Un remolino se le hacía en la cabeza.
-Niños.
-Paredes amarillas.
-Grupos de niños.
-Vocerío.
-Silencio.
-Una tracalada de sillas.
-El profesor.
-Ahí, solo, parado, en el colegio.
-Quería llorar.
-El profesor le tomó de la mano y lo llevó a instalar en una de las carpetas delanteras junto a un niño de su mismo tamaño.
-El profesor le preguntó:
-—¿Cómo se llama usted?
-Con voz temblorosa, Paco respondió muy bajito:
-—Paco.
-—¿Y su apellido?
-Diga usted todo su nombre.
-—Paco Yunque.
-—Muy bien.
-El profesor volvió a su pupitre y, después de echar una mirada muy seria sobre todos los alumnos, dijo con voz de militar:
-—¡Siéntense!
-Un traqueteo de carpetas y todos los alumnos ya estaban sentados.
-El profesor también se sentó y durante unos momentos escribió en unos libros.
-Paco Yunque tenía aún en la mano su libro, su cuaderno y su lápiz.
-Su compañero de carpeta le dijo:
-—Pon tus cosas, como yo, en la carpeta.
-Paco Yunque seguía muy aturdido y no le hizo caso.
-Su compañero le quitó entonces sus libros y los puso en la carpeta.
-Después, le dijo alegremente:
-—Yo también me llamo Paco.
-Paco Fariña.
-No tengas pena.
-Vamos a jugar con mi tablero.
-Tiene torres negras.
-Me lo ha comprado mi tía Susana.
-¿Dónde está tu familia, la tuya?
-Paco Yunque no respondía nada.
-Este otro Paco le molestaba.
-Como éste eran seguramente todos los demás niños:
-habladores, contentos y no les daba miedo el colegio.
-¿Por qué eran así?
-Y él, Paco Yunque, ¿por qué tenía tanto miedo?
-Miraba a hurtadillas al profesor, al pupitre, al muro que había detrás del profesor y al techo.
-También miró de reojo, a través de la ventana, al patio, que estaba ahora abandonado y en silencio.
-El sol brillaba afuera.
-De cuando en cuando, llegaban voces de otros salones de clase y ruidos de carretas que pasaban por la calle.
-¡Qué cosa extraña era estar en el colegio!
-Paco Yunque empezaba a volver un poco de su aturdimiento.
-Pensó en su casa y en su mamá.
-Le preguntó a Paco Fariña:
-—¿A qué hora nos iremos a nuestras casas?
-—A las once.
-¿Dónde está tu casa?
-—Por allá.
-—¿Está lejos?
-—Sí… No…Paco Yunque no sabía en qué calle estaba su casa, porque acababan de traerlo, hacía pocos días, del campo y no conocía la ciudad.
-Sonaron unos pasos de carrera en el patio, apareció en la puerta del salón Humberto, el hijo del señor Dorian Grieve, un inglés, patrón de los Yunque, gerente de los ferrocarriles de la «Peruvian Corporation» y alcalde del pueblo.
-Precisamente a Paco le habían hecho venir del campo para que acompañe al colegio a Humberto y para que juegue con él, pues ambos tenían la misma edad.
-Sólo que Humberto acostumbraba venir tarde al colegio y esta vez, por ser la primera, la señora Grieve le había dicho a la madre de Paco:
-—Lleve usted ya a Paco al colegio.
-No sirve que llegue tarde el primer día.
-Desde mañana esperará a que Humberto se levante y los llevará usted juntos a los dos.
-El profesor, al ver a Humberto Grieve, le dijo:
-—¿Hoy otra vez tarde?
-Humberto, con gran desenfado, respondió:
-—Me he quedado dormido.
-—Bueno —dijo el profesor—.
-Que ésta sea la última vez.
-Pase a sentarse.
-Humberto Grieve buscó con la mirada donde estaba Paco Yunque.
-Al dar con él, se le acercó y le dijo imperiosamente:
-—Ven a mi carpeta conmigo.
-Paco Fariña le dijo a Humberto Grieve:
-—No.
-Porque el señor lo ha puesto aquí.
-—¿Y a ti qué te importa?
-—le increpó Grieve violentamente, arrastrando a Yunque por un brazo a su carpeta.
-—¡Señor!
-—gritó entonces Fariña—, Grieve se está llevando a Paco Yunque a su carpeta.
-El profesor cesó de escribir y preguntó con voz enérgica:
-—¡Vamos a ver!
-¡Silencio!
-¿Qué pasa ahí?
-Fariña volvió a decir:
-—Grieve se ha llevado a su carpeta a Paco Yunque.
-Humberto Grieve instalado ya en su carpeta con Paco Yunque, le dijo al profesor:
-—Sí, señor.
-Porque Paco Yunque es mi muchacho.
-Por eso.
-El profesor sabía esto perfectamente y le dijo a Humberto Grieve:
-—Muy bien.
-Pero yo lo he colocado con Paco Fariña, para que atienda mejor las explicaciones.
-Déjelo que vuelva a su sitio.
-Todos los alumnos miraban en silencio al profesor, a Humberto Grieve y a Paco Yunque.
-Fariña fue y tomó a Paco Yunque por la mano y quiso volverlo a traer a su carpeta, pero Grieve tomó a Paco Yunque por el otro brazo y no lo dejó moverse.
-El profesor le dijo otra vez a Grieve:
-—¡Grieve!
-¿Qué es esto?
-Humberto Grieve, colorado de cólera, dijo:
-—No, señor.
-Yo quiero que Yunque se quede conmigo.
-—Déjelo, le he dicho.
-—No, señor.
-—¿Cómo?
-—No.
-El profesor estaba indignado y repetía, amenazador:
-—¡Grieve!
-¡Grieve!
-Humberto Grieve tenía bajos los ojos y sujetaba fuertemente por el brazo a Paco Yunque, el cual estaba aturdido y se dejaba jalar como un trapo por Fariña y por Grieve.
-Paco Yunque tenía ahora más miedo a Humberto Grieve que al profesor, que a todos los demás niños y que al colegio entero.
-¿Por qué Paco Yunque le tenía tanto miedo a Humberto Grieve?
-Porque este Humberto Grieve solía pegarle a Paco Yunque.
-El profesor se acercó a Paco Yunque, le tomó por el brazo y le condujo a la carpeta de Fariña.
-Grieve se puso a llorar, pataleando furiosamente en su banco.
-De nuevo se oyeron pasos en el patio y otro alumno, Antonio Gesdres —hijo de un albañil—, apareció a la puerta del salón.
-El profesor le dijo:
-—¿Por qué llega usted tarde?
-—Porque fui a comprar pan para el desayuno.
-—¿Y por qué no fue usted más temprano?
-—Porque estuve alzando a mi hermanito y mamá está enferma y papá se fue a su trabajo.
-—Bueno —dijo el profesor, muy serio—.
-Párese ahí… Y, además, tiene usted una hora de reclusión.
-Le señaló un rincón, cerca de la pizarra de ejercicios.
-Paco Fariña se levantó entonces y dijo:
-—Grieve también ha llegado tarde, señor.
-—Miente, señor, —respondió rápidamente Humberto Grieve—.
-No he llegado tarde.
-Todos los alumnos dijeron en coro:
-—¡Sí, señor!
-¡Sí, señor!
-¡Grieve ha llegado tarde!
-—¡Psch!
-¡Silencio!
-—dijo malhumorado el profesor y todos los niños se callaron.
-El profesor se paseaba pensativo.
-Fariña le decía a Yunque en secreto:
-—Grieve ha llegado tarde y no lo castigan.
-Porque su papá tiene plata.
-Todos los días llega tarde.
-¿Tú vives en su casa?
-¿Cierto que eres su muchacho?
-Yunque respondió:
-—Yo vivo con mi mamá…—¿En la casa de Humberto Grieve?
-—Es una casa muy bonita.
-Ahí está la patrona y el patrón.
-Ahí está mi mamá.
-Yo estoy con mi mamá.
-Humberto Grieve, desde su banco del otro lado del salón, miraba con cólera a Paco Yunque y le enseñaba los puños, porque se dejó llevar a la carpeta de Paco Fariña.
-Paco Yunque no sabía qué hacer.
-Le pegaría otra vez el niño Humberto, porque no se quedó con él, en su carpeta.
-Cuando saldrían del colegio, el niño Humberto le daría un empujón en el pecho y una patada en la pierna.
-El niño Humberto era malo y pegaba pronto, a cada rato.
-En la calle.
-En el corredor también.
-Y en la escalera.
-Y también en la cocina, delante su mamá y delante la patrona.
-Ahora le va a pegar, porque le estaba enseñando los puñetes y le miraba con ojos blancos.
-Yunque le dijo a Fariña:
-—Me voy a la carpeta del niño Humberto.
-Y Paco Fariña le decía:
-—No vayas.
-No seas zonzo.
-El señor te va a castigar.
-Fariña volteó a ver a Grieve y este Grieve le enseñó también a él los puños, refunfuñando no sé qué cosas, a escondidas del profesor.
-—¡Señor!
-—gritó Fariña—.
-Ahí, ese Grieve me está enseñando los puñetes.
-El profesor dijo:
-—¡Psch!
-¡Psch!
-¡Silencio!
-… Vamos a ver… Vamos a hablar hoy de los peces, y después, vamos a hacer todos un ejercicio escrito en una hoja de los cuadernos, y después me los dan para verlos.
-Quiero ver quién hace el mejor ejercicio, para que su nombre sea inscrito en el Cuaderno de Honor del Colegio, como el mejor alumno del primer año.
-¿Me han oído bien?
-Vamos a hacer lo mismo que hicimos la semana pasada.
-Exactamente lo mismo.
-Hay que atender bien a la clase.
-Hay que copiar bien el ejercicio que voy a escribir después en la pizarra.
-¿Me han entendido bien?
-Los alumnos respondieron en coro:
-—Sí, señor.
-—Muy bien —dijo el profesor—.
-Vamos a ver.
-Vamos a hablar ahora de los peces.
-Varios niños quisieron hablar.
-El profesor le dijo a uno de los Zumiga que hablase.
-—Señor —dijo Zumiga—:
-Había en la playa mucha arena.
-Un día nos metimos entre la arena y encontramos un pez medio vivo y lo llevamos a mi casa.
-Pero se murió en el camino…Humberto Grieve dijo:
-—Señor:
-yo he cogido muchos peces y los he llevado a mi casa y los he soltado en mi salón y no se mueren nunca.
-El profesor preguntó:
-—Pero… ¿los deja usted en alguna vasija con agua?
-—No, señor.
-Están sueltos, entre los muebles.
-Todos los niños se echaron a reír.
-Un chico, flacucho y pálido, dijo:
-—Mentira, señor.
-Porque el pez se muere pronto, cuando lo sacan del agua.
-—No, señor —decía Humberto Grieve—.
-Porque en mi salón no se mueren.
-Porque mi salón es muy elegante.
-Porque mi papá me dijo que trajera peces y que podía dejarlos sueltos entre las sillas.
-Paco Fariña se moría de risa.
-Los Zumiga también.
-El chico rubio y gordo, de chaqueta blanca y el otro, cara redonda y chaqueta verde, se reían ruidosamente.
-¡Qué Grieve tan divertido!
-¡Los peces en su salón!
-¡Entre los muebles!
-¡Como si fuesen pájaros!
-Era una gran mentira lo que contaba Grieve.
-Todos los chicos exclamaban a la vez, reventando de risa:
-—Ja!
-Ja!
-Ja!
-Ja!
-Ja!
-¡Miente, señor!
-Ja!
-Ja!
-Ja!
-Ja!
-Ja!
-¡Mentira!
-¡Mentira!
-Humberto Grieve se enojó porque no le creían lo que contaba.
-Todos se burlaban de lo que había dicho.
-Pero Grieve recordaba que trajo dos peces pequeños a su casa y los soltó en su salón y ahí estuvieron muchos días.
-Los movió y se movían.
-No estaba seguro si vivieron muchos días o murieron pronto.
-Grieve, de todos modos, quería que le creyeran lo que decía.
-En medio de las risas de todos, le dijo a uno de los Zumiga:
-—¡Claro!
-Porque mi papá tiene mucha plata.
-Y me ha dicho que va hacer llevar a mi casa a todos los peces del mar.
-Para mí.
-Para que juegue con ellos en mi salón grande.
-El profesor dijo en alta voz:
-—¡Bueno!
-¡Bueno!
-¡Silencio!
-Grieve no se acuerda bien, seguramente.
-Porque los peces mueren cuando…Los niños añadieron en coro:
-—… se les saca del agua.
-—Eso es —dijo el profesor.
-El niño flacucho y pálido dijo:
-—Porque los peces tienen sus mamás en el agua y sacándolos, se quedan sin mamás.
-—¡No, no, no!
-—dijo el profesor—.
-Los peces mueren fuera del agua, porque no pueden respirar.
-Ellos toman el aire que hay en el agua, y cuando salen, no pueden absorber el aire que hay afuera.
-—Porque ya están como muertos —dijo un niño.
-Humberto Grieve dijo:
-—Mi papá puede darles aire en mi casa, porque tiene bastante plata para comprar todo.
-El chico vestido de verde dijo:
-—Mi papá también tiene plata.
-—Mi papá también —dijo otro chico.
-Todos los niños dijeron que sus padres tenían mucho dinero.
-Paco Yunque no decía nada y estaba pensando en los peces que morían fuera del agua.
-Fariña le dijo a Paco Yunque:
-—Y tú, ¿tu papá no tiene plata?
-Paco Yunque reflexionó y se acordó haberle visto una vez a su mamá con unas pesetas en la mano.
-Yunque dijo a Fariña:
-—Mi mamá tiene también mucha plata.
-—¿Cuánto?
-—le preguntó Fariña.
-—Como cuatro pesetas.
-Paco Fariña dijo al profesor en voz alta:
-—Paco Yunque dice que su mamá tiene también mucha plata.
-—¡Mentira, señor!
-—respondió Humberto Grieve—.
-Paco Yunque miente, porque su mamá es la sirviente de mi mamá y no tiene nada.
-El profesor tomó la tiza y escribió en la pizarra, dando la espalda a los niños.
-Humberto Grieve, aprovechando de que no le veía el profesor, dio un salto y le jaló de los pelos a Yunque, volviéndose a la carrera a su carpeta.
-Yunque se puso a llorar.
-—¿Qué es eso?
-—dijo el profesor, volviéndose a ver lo que pasaba.
-Paco Fariña dijo:
-—Grieve le ha tirado de los pelos, señor.
-—No, señor —dijo Grieve—.
-Yo no he sido.
-Yo no me he movido de mi sitio.
-—¡Bueno, bueno!
-—dijo el profesor—.
-¡Silencio!
-¡Cállese, Paco Yunque!
-¡Silencio!
-Siguió escribiendo en la pizarra;
-y después preguntó a Grieve:
-—Si se le saca del agua, ¿qué sucede con el pez?
-—Va a vivir en mi salón —contestó Grieve.
-Otra vez se reían de Grieve los niños.
-Este Grieve no sabía nada.
-No pensaba más que en su casa y en su salón y en su papá y en su plata.
-Siempre estaba diciendo tonterías.
-—Vamos a ver, usted, Paco Yunque —dijo el profesor—.
-¿Qué pasa con el pez, si se le saca del agua?
-Paco Yunque, medio llorando todavía por el jalón de pelos que le dio Grieve, repitió de una tirada lo que dijo el profesor:
-—Los peces mueren fuera del agua porque les falta aire.
-—¡Eso es!
-—decía el profesor—.
-Muy bien.
-Volvió a escribir en la pizarra.
-Humberto Grieve aprovechó otra vez de que no podía verle el profesor y fue a darle un puñetazo a Paco Fariña en la boca y regresó de un salto a su carpeta.
-Fariña, en vez de llorar como Paco Yunque, dijo a grandes voces al profesor:
-—¡Señor!
-¡Acaba de pegarme Humberto Grieve!
-—¡Sí, señor!
-¡Sí, señor!
-—decían todos los niños a la vez.
-Una bulla tremenda había en el salón.
-El profesor dio un puñetazo en su pupitre y dijo:
-—¡Silencio!
-El salón se sumió en un silencio completo y cada alumno estaba en su carpeta, serio y derecho, mirando ansiosamente al profesor.
-¡Las cosas de este Humberto Grieve!
-¡Ya ven lo que estaba pasando por su cuenta!
-¡Ahora habrá que ver lo que iba a hacer el profesor, que estaba colorado de cólera!
-¡Y todo por culpa de Humberto Grieve!
-—¿Qué desorden era ese?
-—preguntó el profesor a Paco Fariña.
-Paco Fariña, con los ojos brillantes de rabia, decía:
-—Humberto Grieve me ha pegado un puñetazo en la cara, sin que yo le haga nada.
-—¿Verdad, Grieve?
-—No, señor —dijo Humberto Grieve—.
-Yo no le he pegado.
-El profesor miró a todos los alumnos sin saber a qué atenerse.
-¿Quién de los dos decía la verdad?
-¿Fariña o Grieve?
-—¿Quién lo ha visto?
-—preguntó el profesor a Fariña.
-—¡Todos, señor!
-Paco Yunque también lo ha visto.
-—¿Es verdad lo que dice Paco Fariña?
-—le preguntó el profesor a Yunque.
-Paco Yunque miró a Humberto Grieve y no se atrevió a responder, porque si decía que sí, el niño Humberto le pegaría a la salida.
-Yunque no dijo nada y bajó cabeza.
-Fariña dijo:
-—Yunque no dice nada, señor, porque Humberto Grieve le pega, porque es su muchacho y vive en su casa.
-El profesor preguntó a los otros alumnos:
-—¿Quién otro ha visto lo que dice Fariña?
-—¡Yo, señor!
-¡Yo, señor!
-¡Yo, señor!
-El profesor volvió a preguntar a Grieve:
-—¿Entonces, es cierto, Grieve, que le ha pegado usted a Fariña?
-—¡No, señor!
-Yo no le he pegado.
-—Cuidado con mentir, Grieve.
-¡Un niño decente como usted, no debe mentir!
-—No, señor.
-Yo no le he pegado.
-—Bueno.
-Yo creo en lo que dice usted.
-Yo sé que usted no miente nunca.
-Bueno.
-Pero tenga usted mucho cuidado en adelante.
-El profesor se puso a pasear, pensativo, y todos los alumnos seguían circunspectos y derechos en sus bancos.
-Paco Fariña gruñía a media voz y como queriendo llorar:
-—No le castigan, porque su papá es rico.
-Le voy a decir a mi mamá.
-El profesor le oyó y se plantó enojado delante de Fariña y le dijo en alta voz:
-—¿Qué está usted diciendo?
-Humberto Grieve es un buen alumno.
-No miente nunca.
-No molesta a nadie.
-Por eso no le castigo.
-Aquí, todos los niños son iguales, los hijos de ricos y los hijos de pobres.
-Yo los castigo aunque sean hijos de ricos.
-Como usted vuelva a decirlo lo que está diciendo del padre de Grieve, le pondré dos horas de reclusión.
-¿Me ha oído usted?
-Paco Fariña estaba agachado.
-Paco Yunque también.
-Los dos sabían que era Humberto Grieve quien les había pegado y que era un gran mentiroso.
-El profesor fue a la pizarra y siguió escribiendo.
-Paco Fariña le preguntaba a Paco Yunque:
-—¿Y por qué no se lo dices a tu mamá?
-—Porque si le digo a mi mamá, también me pega y la patrona se enoja.
-Mientras el profesor escribía en la pizarra, Humberto Grieve se puso a llenar de dibujos su cuaderno.
-Paco Yunque estaba pensando en su mamá.
-Después se acordó de la patrona y del niño Humberto.
-¿Le pegaría al volver a la casa?
-Yunque miraba a los otros niños y éstos no le pegaban a Yunque ni a Fariña, ni a nadie.
-Tampoco le querían agarrar a Yunque en las otras carpetas, como quiso hacerlo el niño Humberto.
-¿Por qué el niño Humberto era así con él?
-Yunque se lo diría ahora a su mamá y si el niño Humberto le pegaba, se lo diría al profesor.
-Pero el profesor no le hacía nada al niño Humberto.
-Entonces, se lo diría a Paco Fariña.
-Le preguntó a Paco Fariña:
-—¿A ti también te pega el niño Humberto?
-—¿A mí?
-¡Qué me va a pegar a mí!
-Le pego un puñetazo en el hocico y le hecho sangre.
-¡Vas a ver!
-¡Como me haga alguna cosa!
-¡Déjalo y verás!
-¡Y se lo diré a mi mamá!
-¡Y vendrá mi papá y le pegará a Grieve y a su papá también y a todos!
-Paco Yunque le oía asustado a Paco Fariña lo que decía.
-¿Cierto sería que le pegaría al niño Humberto?
-¿Y que su papá vendría a pegarle al señor Grieve?
-Paco Yunque no quería creerlo, porque al niño Humberto no le pegaba nadie.
-Si Fariña le pegaba, vendría el patrón y le pegaría a Fariña y también al papá de Fariña.
-Le pegaría el patrón a todos.
-Porque todos le tenían miedo.
-Porque el señor Grieve hablaba muy serio y estaba mandando siempre.
-Y venían a su casa señores y señoras que le tenían miedo y obedecían siempre al patrón y a la patrona.
-En buena cuenta, el señor Grieve podía más que el profesor y más que todos.
-Paco Yunque miró al profesor que escribía en la pizarra.
-¿Quién era el profesor?
-¿Por qué era tan serio y daba miedo?
-Yunque seguía mirándolo.
-No era el profesor igual a su papá ni al señor Grieve.
-Más bien se parecía a otros señores que venían a la casa y hablaban con el patrón.
-Tenía un pescuezo colorado y su nariz parecía moco de pavo.
-Sus zapatos hacían risss risss rissss risssss, cuando caminaba mucho.
-Yunque empezó a fastidiarse.
-¿A qué hora se iría a su casa?
-Pero el niño Humberto le iba a pegar a la salida del colegio.
-Y la mamá de Paco Yunque le diría al niño Humberto:
-“No, niño.
-No le pegue usted a Paquito.
-No sea tan malo”.
-Y nada más le diría.
-Pero Paco tendría colorada la pierna de la patada del niño Humberto.
-Y Paco se pondría a llorar.
-Porque al niño Humberto nadie le hacía nada.
-Y porque el patrón y la patrona le querían mucho al niño Humberto, y Paco Yunque tenía pena porque el niño Humberto le pegaba mucho.
-Todos, todos, todos le tenían miedo al niño Humberto y a sus papás.
-Todos.
-Todos.
-Todos.
-El profesor también.
-La cocinera.
-Su hija.
-La mamá de Paco.
-El Venancio con su mandil.
-La María que lava las bacinicas.
-Quebró ayer una bacinica en tres pedazos grandes.
-¿Le pegaría también el patrón al papá de Paco Yunque?
-¡Qué cosa fea era esto del patrón y del niño Humberto!
-Paco Yunque quería llorar.
-¿A qué hora acabaría de escribir el profesor en la pizarra?
-—¡Bueno!
-—dijo el profesor, cesando de escribir—.
-Ahí está el ejercicio escrito.
-Ahora, todos sacan sus cuadernos y copian lo que hay en la pizarra.
-Hay que copiarlo completamente igual.
-—¿En nuestros cuadernos?
-—preguntó tímidamente Paco Yunque.
-—Sí, en sus cuadernos —le respondió el profesor—.
-¿Usted sabe escribir un poco?
-—Sí, señor.
-Porque mi papá me enseñó en el campo.
-—Muy bien.
-Entonces, todos a copiar.
-Los niños sacaron sus cuadernos y se pusieron a copiar el ejercicio que el profesor había escrito en la pizarra.
-—No hay que apurarse —decía el profesor—.
-Hay que escribir poco a poco, para no equivocarse.
-Humberto Grieve preguntó:
-—¿Es, señor, el ejercicio escrito de los peces?
-—Sí.
-A copiar todo el mundo.
-El salón se sumió en el silencio.
-No se oía sino el ruido de los lápices.
-El profesor se sentó a su pupitre y también se puso a escribir en unos libros.
-Humberto Grieve, en vez de copiar su ejercicio, se puso otra vez a hacer dibujos en su cuaderno.
-Lo llenó completamente de dibujos de peces, de muñecos y de cuadritos.
-En la última página dibujó estas figuras.
-Al cabo de un rato, el profesor se paró y preguntó:
-—¿Ya terminaron?
-—Ya, señor —respondieron todos a la vez.
-—Bueno —dijo el profesor—.
-Pongan al pie sus nombres bien claros.
-En ese momento sonó la campana del recreo.
-Una gran algazara volvieron a hacer los niños y salieron corriendo al patio.
-Paco Yunque había copiado su ejercicio muy bien y salió al recreo con su libro, su cuaderno y su lápiz.
-Ya en el patio, vino Humberto Grieve y agarró a Paco Yunque por un brazo, diciéndole con cólera:
-—Ven a jugar al melo.
-Lo echó de un empellón al medio y le hizo derribar su libro, su cuaderno y su lápiz.
-Yunque hacía lo que le ordenaba Grieve, pero estaba colorado y avergonzado de que los otros niños viesen cómo lo zarandeaba el niño Humberto.
-Yunque quería llorar.
-Paco Fariña, los dos Zumiga y otros niños rodeaban a Humberto Grieve y a Paco Yunque.
-El niño flacucho y pálido recogió el libro, el cuaderno y el lápiz de Yunque, pero Humberto Grieve se los quitó a la fuerza, diciéndole:
-—¡Déjalos!
-¡No te metas!
-Porque Paco Yunque es mi muchacho.
-Humberto Grieve llevó al salón de clases las cosas de Paco Yunque y se las guardó en su carpeta.
-Después, volvió al patio a jugar con Paco Yunque.
-Le cogió del pescuezo y le hizo doblar la cintura y ponerse en cuatro manos.
-—Estáte quieto así —le ordenó imperiosamente—.
-No te muevas hasta que yo te diga.
-Humberto Grieve se retiró a cierta distancia y desde allí vino corriendo y dio un salto sobre Paco Yunque, apoyando las manos sobre sus espaldas y dándole una patada feroz en las posaderas.
-Volvió a retirarse y volvió a saltar sobre Paco Yunque, dándole otra patada.
-Mucho rato estuvo así jugando Humberto Grieve con Paco Yunque.
-Le dio como veinte saltos y veinte patadas.
-De repente se oyó un llanto.
-Era Yunque que estaba llorando de las fuertes patadas del niño Humberto.
-Entonces salió Paco Fariña del ruedo formado por los otros niños y se plantó ante Grieve, diciéndole:
-—¡No!
-¡No te dejo que saltes sobre Paco Yunque!
-Humberto Grieve le respondió amenazándole:
-—¡Oye!
-¡Oye!
-¡Paco Fariña!
-¡Paco Fariña!
-¡Te voy a dar un puñetazo!
-Pero Fariña no se movía y estaba tieso delante de Grieve y le decía:
-—¡Porque es tu muchacho, le pegas y lo saltas y lo haces llorar!
-¡Sáltalo y verás!
-Los dos hermanos Zumiga abrazaban a Paco Yunque y le decían que ya no llorase y le consolaban, diciéndole:
-—¿Por qué te dejas saltar así y dar de patadas?
-¡Pégale!
-¡Sáltalo tú también!
-¿Por qué te dejas?
-¡No seas zonzo!
-¡Cállate!
-¡Ya no llores!
-¡Ya nos vamos a ir a nuestras casas!
-Paco Yunque estaba siempre llorando y sus lágrimas parecían ahogarle.
-Se formó un tumulto de niños en torno a Paco Yunque y otro tumulto en torno a Humberto Grieve y a Paco Fariña.
-Grieve le dio un empellón brutal a Fariña y lo derribó al suelo.
-Vino un alumno más grande, del segundo año, y defendió a Fariña, dándole a Grieve un puntapié.
-Y otro niño del tercer año, más grande que todos, defendió a Grieve, dándole una furiosa trompada al alumno de segundo año.
-Un buen rato llovieron bofetadas y patadas entre varios niños.
-Eso era un enredo.
-Sonó la campana y todos los niños volvieron a sus salones de clase.
-A Paco Yunque lo llevaron por los brazos los dos hermanos Zumiga.
-Una gran gritería había en el salón del primer año, cuando entró el profesor.
-Todos se callaron.
-El profesor miró a todos muy serio y dijo como un militar:
-—¡Siéntense!
-Un traqueteo de carpetas y todos los alumnos estaban ya sentados.
-Entonces el profesor se sentó en su pupitre y llamó por lista a los niños para que le entregasen en sus cuartillas con los ejercicios escritos sobre el tema de los peces.
-A medida que el profesor recibía las hojas de los cuadernos, las iba leyendo y escribía las notas en unos libros.
-Humberto Grieve se acercó a la carpeta de Paco Yunque y le entregó su libro, su cuaderno y su lápiz.
-Pero antes había arrancado la hoja del cuaderno en que estaba el ejercicio de Paco Yunque y puso en ella su firma.
-Cuando el profesor dijo:
-“Humberto Grieve”, Grieve fue y presentó el ejercicio de Paco Yunque, como si fuese suyo.
-Y cuando el profesor dijo:
-“Paco Yunque”, Yunque se puso a buscar en su cuaderno la hoja en que escribió su ejercicio y no la encontró.
-—¿La ha perdido usted —le preguntó el profesor— o no la ha hecho usted?
-Pero Paco Yunque no sabía lo que se había hecho la hoja de su cuaderno y, muy avergonzado, se quedó en silencio y bajó la frente.
-—Bueno —dijo el profesor, y anotó en unos libros la falta de Paco Yunque.
-Después siguieron los demás entregando sus ejercicios.
-Cuando el profesor acabó de verlos todos, entró de repente al salón el Director del Colegio.
-El profesor y los niños se pusieron de pie respetuosamente.
-El Director miró como enojado a los alumnos y dijo en voz alta:
-—¡Siéntense!
-El Director le preguntó al profesor:
-—¿Ya sabe usted quién es el mejor alumno de su año?
-¿Han hecho el ejercicio semanal para calificarlos?
-—Sí, señor Director —dijo el profesor—.
-Acaban de hacerlo.
-La nota más alta la ha obtenido Humberto Grieve.
-—¿Dónde está su ejercicio?
-—Aquí está, señor Director.
-El profesor buscó entre todas las hojas de los alumnos y encontró el ejercicio firmado por Humberto Grieve.
-Se lo dio al Director, que se quedó viendo largo rato la cuartilla.
-—Muy bien —dijo el Director, contento.
-Subió al pupitre y miró severamente a los alumnos.
-Después les dijo con su voz un poco ronca pero enérgica:
-—De todos los ejercicios que ustedes han hecho ahora, el mejor es de Humberto Grieve.
-Así es que el nombre de este niño va a ser inscrito en el Cuadro de Honor de esta semana, como el mejor alumno del primer año.
-Salga afuera Humberto Grieve.
-Todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
-El Director le dio la mano, diciéndole:
-—Muy bien, Humberto Grieve.
-Lo felicito.
-Así deben ser los niños.
-Muy bien.
-Se volvió el Director a los demás alumnos y les dijo:
-—Todos ustedes deben hacer lo mismo que Humberto Grieve.
-Deben ser buenos alumnos como él.
-Deben estudiar y ser aplicados como él.
-Deben ser serios, formales y buenos niños como él.
-Y si así lo hacen, recibirá cada uno un premio al fin del año y sus nombres serán también inscritos en el Cuadro de Honor del Colegio, como el de Humberto Grieve.
-A ver si la semana que viene, hay otro alumno que dé una buena clase y haga un buen ejercicio, como el que ha hecho hoy Humberto Grieve.
-Así lo espero.
-Se quedó el Director callado un rato.
-Todos los alumnos estaban pensativos y miraban a Humberto Grieve con admiración.
-¡Qué rico Grieve!
-¡Qué buen ejercicio había escrito!
-¡Ese sí que era bueno!
-¡Era el mejor alumno de todos!
-¡Llegando tarde y todo!
-¡Y pegándole a todos!
-¡Pero ya lo estaban viendo!
-¡Le había dado la mano al Director!
-¡Humberto Grieve, el mejor de todos los del primer año!
-El Director se despidió del profesor, hizo una venia a los alumnos, que se pararon para despedirlo, y salió.
-El profesor dijo después:
-—¡Siéntense!
-Un traqueteo de carpetas y todos los niños estaban ya sentados.
-El profesor ordenó a Grieve:
-—Váyase a su asiento.
-Humberto Grieve, muy alegre, volvió a su carpeta.
-Al pasar junto a Paco Fariña, le echó la lengua.
-El profesor subió a su pupitre y se puso a escribir en unos libros.
-Paco Fariña le dijo en voz baja a Paco Yunque:
-—Mira al señor, que está poniendo tu nombre en su libro, porque no has presentado tu ejercicio.
-¡Mírale!
-Te van a dejar ahora recluso y no vas a ir a tu casa.
-¿Por qué has roto tu cuaderno?
-¿Dónde lo pusiste?
-Paco Yunque no contestaba nada y estaba con la cabeza agachada.
-—¡Anda!
-—le volvió a decir Paco Fariña—.
-¡Contesta!
-¿Por qué no contestas?
-¿Dónde has dejado tu ejercicio?
-Paco Fariña se agachó a mirar la cara de Paco Yunque y le vio que estaba llorando.
-Entonces lo consoló, diciéndole:
-—¡Déjalo!
-¡No llores!
-¡Déjalo!
-¡No tengas pena!
-¡Vamos a jugar con mi tablero!
-¡Tiene torres negras!
-¡Déjalo!
-¡Yo te regalo mi tablero!
-¡No seas zonzo!
-¡Ya no llores!
-Pero Paco Yunque seguía llorando agachado.
-guacamayo
-agua
-nubes
-bagre
-El guacamayo es muy lindo.
-perdíz
-sal
-shicra
-mariposa
-La perdiz anda por el monte.
-gallo
-aguaje
-zorro
-gusano
-El gallo canta.
-avíspa
-sol
-hongo
-huayruro
-La avispa vuela.
-araña
-calabaza
-sirena
-tabaco
-La araña corre.
-papagayo
-sapo
-pájaro carpintero
-alacrán
-Miren al papagayo.
-garza
-chonta
-achiote
-chupé
-La garza está en el río.
-niño
-cerbatana
-pluma
-pijuayo
-El bebé gatea.
-maíz
-chaquira
-armadillo
-guayaba
-Cosechamos el maíz.
-gusano
-corteza
-batidor
-lagartija
-El gusano está pegado en la hoja.
-paujil
-gusano
-suri
-gato
-El paujil voló hacia el árbol.
-Pajáro Martin
-yarina
-leña
-chicharra
-El pajáro Martin busca su alimento.
-rana
-guineo
-cucaracha
-oro
-La rana croa.
-pato
-papaya
-carachama
-Papél
-El pato esta en el río.
-víbora
-maní
-miel
-arcilla
-La víbora esta brava.
-sachapapa
-guayaquil
-caracol
-boquichico
-Ya es tiempo de la sachapapa.
-luna
-carne
-árbol
-ishanga
-Miren a la luna llena.
-cerro
-camarón
-isleño
-canoa
-Miremos el cerro.
-noche
-sorpresa
-sí, claro
-lamento
-En la noche se ven las estrellas.
-venado
-espina
-colibri
-ají
-El venado corre.
-achuni
-majas
-cocona
-capirona
-El achuni anda por las ramas.
 Con esta lección aprenderás nuevas palabras y ampliarás tu vocabulario en Awajun. Asimismo repasaremos algunas expresiones básicas para reforzar.
 Siempre es un placer compartir y enseñar el idioma Awajun.
 Apoyarse, agarrarse
@@ -28611,3 +23518,5100 @@ Porque yo digo a todo hombre a cuyos oídos han llegado las palabras del libro d
 Y si alguno quitare de las palabras de este libro, Dios le quitará su parte en el árbol de la vida y la ciudad santa, incluso las cosas que están en este libro.
 El que da testimonio de estas cosas dice: Verdaderamente, vengo pronto. Amén, sí ven, Señor Jesús.
 La gracia del Señor Jesús sea con todos ustedes. Amén.
+ANALISIS GRAMATICAL DE LA LENGUA AWAJUN
+Pero
+Entonces
+Sin embargo
+Como
+Como
+Así mismo
+Cuando
+Cuando
+Mientras
+Luego
+Después
+Después
+Hasta
+Hasta
+Yo estoy
+Yo estaba
+Yo estaré
+Tú estas
+Tú estabas
+Tú estarás
+Él esta
+Él estaba
+Él estará
+Aqui
+Aqui
+Hay
+allí
+Alla
+Cerca
+Lejos
+Dentro
+Abajo
+Encima
+Debajo
+El pijuayo está muy cargado de frutos.
+El zancudo pica al niño.
+En mi casa tengo un loro.
+Mi padre lee un libro.
+En mi casa hay una telaraña.
+Mi hermano hizo una lanza de pona.
+Mi ropa está muy usada.
+Mi papá se pone el cinturón.
+El gallo canta al mediodía.
+La víbora mordió a miperro.
+picaflor
+ardilla
+maní
+botella
+cangrejo
+cacao
+pluma
+lechuga
+balsa
+aguaje
+corazón
+abeja
+erizo
+aguja
+flor
+perro
+estrella
+yo
+Tú
+usted
+Él
+Ella
+Aquel
+Aquella
+tigre
+hormiga
+víbora
+árbol
+caracol
+papaya
+papagayo
+gallina
+arete
+frijol
+gallo
+perdíz
+lanza
+zapote
+lapicero
+zancudo
+niño
+zorro
+Paujíl
+venado
+leña
+rata
+cocona
+carpintero
+mariposa
+guacamayo
+sajino
+mono
+paloma
+rana
+Bujurqui
+canoa
+SOY BILINGÜE
+Soy bilingüe y estoy orgulloso de serlo,
+Llevo en mi mente y en mi corazón,
+Que soy bilingüe.
+Yo soy bilingüe y no lo niego,
+Me identifico en cualquier lugar,
+Soy igual a todas las personas.
+Yo soy bilingüe,
+Y no me avergüenzo,
+Mi anhelo grande como el río,
+Es ser profesional bilingüe.
+Joven bilingüe,
+Demuestra ante el mundo
+Que, en el surcado río,
+Entre pongos y rocas
+Cerros y árboles.
+¡Tú puedes avanzar!
+DEFENSORIA DEL PU EBLO: ERES DEL PU EBLO
+Defensoría del Pueblo
+naciste buscando justicia y paz,
+con la fortaleza de la persuasión
+luchando por los derechos
+de la población.
+Tu ímpetu de servicio
+vocación sin igual,
+llegando donde nadie más acudirá
+defendiendo derechos de la población
+de acuerdo con Ley y Constitución.
+Caminando siempre
+con rumbos firmes
+dejando huellas indelebles
+y forjando valores
+en la vida de los recurrentes.
+Defensoría, Defensoría
+Defensoría del Pueblo
+eres del pueblo.
+La Panamazonía está formada por territorios históricamente construidos por la Naturaleza y por los pueblos originarios, comunidades locales, ribereñas, campesinas y otras quienes hemos fecundado nuestros sentidos de vida en estas realidades e imaginarios.
+Un sentido de territorialidad basado en relaciones de respeto e integración con el tejido amazónico en todas sus dimensiones, no sólo material, sino espiritual, cultural y de uso;
+todas ellas en disputa histórica desde la violenta llegada de sociedades y visiones colonialistas, expoliadoras y mercantilistas.
+Esta disputa se enmarca dentro del despliegue del sistema capitalista y el modelo de desarrollo depredador, patriarcal y racista, instaurado desde la imposición del colonialismo generador de desigualdades en todas sus formas.
+El desarrollo de este sistema, acompañado de los diversos fundamentalismos, está incidiendo en el retroceso de la vigencia de los derechos de los pueblos, especialmente los alcanzados por las mujeres.
+Muy a pesar de ello, los pueblos amazónicos y andinos resistimos y pervivimos con el indeclinable compromiso de defender la vida en nuestros territorios.
+Por eso, los pueblos de los nueve países de la cuenca amazónica, tomando la posta de Macapá, reunidos en Tarapoto-Perú, junto a hermanas y hermanos de otras latitudes acudimos al llamado de la Amazonía y sus pueblos, convocados por el VIII Foro Social Panamazónico.
+El modelo civilizatorio capitalista, se expresa actualmente en el desarrollo extractivista y de “economía verde”.
+Este es implementado a través de empresas transnacionales y nacionales amparados por los Estados de la Panamazonía que dejan de lado su papel de garante de los derechos de los pueblos y la Naturaleza, poniendo en serio peligro la sostenibilidad de los territorios, la soberanía alimentaria, aumentando nuestra vulnerabilidad frente a los impactos del cambio climático y provocando graves cambios socioculturales en la Naturaleza y la vida de los pueblos.
+En este escenario se limita cada vez más la soberanía y autodeterminación y los derechos son menos reconocidos y más violentados.
+Tal como viene sucediendo con la consulta previa libre e informada, cuya aplicación se está convirtiendo en un procedimiento administrativo, cuando sabemos que debe basarse en el respeto a los derechos de los pueblos, los estándares ambientales y el diálogo intercultural.
+Además los poderes legislativos de los países de la Panamazonía aprueban leyes que atentan contra la espiritualidad y los derechos de los pueblos, en especial contra el derecho de las mujeres a la autonomía y de sus cuerpos.
+Frente a ello, los pueblos amazónicos y andinos continuamos resistiendo y movilizándonos para transformar las sociedades y los Estados, cuestionando el modelo de desarrollo extractivista y afirmando nuevos paradigmas basados en propuestas como la Vida Plena, el Buen Vivir, Vivir Bien y el autogobierno territorial.
+La respuesta de los Estados es la criminalización de la protesta social para debilitar a las organizaciones indígenas, de mujeres, movimientos sociales e instituciones de la sociedad civil y profundizar su modelo y su alianza con las empresas petroleras, mineras, madereras, agroindustriales y de megaproyectos hidroeléctricos.
+Ante este contexto, el VIII Foro Social Panamazónico plantea fortalecer la alianza, articulación y movilización de los pueblos amazónicos y andinos basada en el respeto a la Naturaleza, el territorio y la vida.
+Por lo tanto, las propuestas recogidas en el Foro se presentan a continuación:
+Construir nuevos paradigmas a partir de las propuestas de Vida Plena, Buen Vivir, Vivir Bien, Autogobiernos territoriales etc. que levantan, entre otros, los pueblos originarios amazónicos y andinos.
+Exigir a los Estados que las políticas y normas nacionales se adecuen a las leyes internacionales sobre derechos de los pueblos indígenas amazónicos y andinos.
+Denunciar y luchar contra la corrupción relacionada con el modelo extractivista y los megaproyectos de infraestructura y explotación en la Amazonía y el Ande.
+Fortalecer la articulación y la unidad de las organizaciones sociales, indígenas amazónicas y andinas, de mujeres, afroamazónicos, comunidades LGTBIQ, académicos, organizaciones de jóvenes, adolescentes, niñas y niños y otros movimientos sociales.
+Exigir el reconocimiento de los derechos colectivos de los territorios comunales y territorios integrales a partir de la diversidad territorial y de los escenarios que existen en la Panamazonía valorando saberes, conocimientos y prácticas de los pueblos.
+Reconocer y fortalecer las identidades Amazónicas y Andinas, producto de un rico y complejo intercambio que ha dado lugar al fortalecimiento de las culturas de nuestros pueblos.
+Exigir que se detenga la implementación de falsas soluciones a la crisis climática en la Panamazonía, como la llamada “economía verde” y la financiarización de la Naturaleza, las cuales conllevan la desterritorialización, entre otros impactos negativos.
+Exigimos un ordenamiento territorial que se base en el respeto de nuestra cosmovisión, las fuentes de agua y formas de entender nuestro territorio.
+Exigir a los Estados que garanticen el derecho de los pueblos amazónicos y andinos a la comunicación democratizando de manera efectiva los medios y tecnologías.
+Exigimos el fin de todo tipo de violencia contra las mujeres tanto en las comunidades como fuera de ellas, en especial contra las mujeres defensoras de derechos.
+Las mujeres exigimos que los Estados se aparten de los preceptos religiosos a la hora de aprobar leyes y decidir las políticas públicas que afectan nuestros derechos, nuestros cuerpos y territorios y que se rijan por estándares internacionales de derechos humanos y laicidad.
+El Foro Social Panamazónico adopta como suyo el Tribunal de Justicia de los Derechos de las Mujeres Panamazónicas-Andinas.
+Exigimos que se reconozca y valore el trabajo que las mujeres hacemos en nuestros hogares, comunidades y organizaciones aportando a la sostenibilidad de la vida y al Producto Bruto Interno (PBI) en nuestros países.
+Nos solidarizamos con el pueblo de la llamada Guyana Francesa y rechazamos la existencia de territorios en la Panamazonía en condición de colonia.
+Defender a los pueblos en aislamiento voluntario y contacto inicial.
+Exigimos a los Estados respetar su derecho a la libre determinación, reconocerlos, demarcar y proteger sus territorios y garantizar su naturaleza transfronteriza.
+Los/as jóvenes, niños, niñas y adolescentes exigimos a los Estados el reconocimiento y respeto de los derechos ecológicos.
+Asimismo exigimos que los Estados garanticen su derecho a crecer en un entorno seguro y sano para vivir de manera plena.
+Exigimos el reconocimiento de la educación comunitaria intercultural como expresión del respeto a las culturas amazónicas y andinas y la construcción de una ciudadanía intercultural.
+Impulsar políticas públicas que aborden la gestión de la diversidad, reconociendo, valorando y aprovechando la diversidad cultural de los pueblos indígenas en las ciudades, integrando a la juventud y la niñez.
+Promover nuevas relaciones entre lo urbano - rural, campo-ciudad, generando y promoviendo el consumo responsable basado entre otros en la agricultura ecológica.
+Promover la agroforestería ecológica y la gestión sostenible de los bosques Amazónico-Andinos desde las organizaciones indígenas para la seguridad y soberanía alimentaria.
+Recuperar productos y especies nativas a través del intercambio de semillas y cultivos dentro de las comunidades, entre ellas y la población en general con la participación activa de las mujeres.
+Reivindicar y fortalecer las identidades de los pueblos amazónicos y andinos, recuperando el uso de las lenguas originarias.
+Incorporar a los sabios(as) ancianos(as) como fuente de saberes acumulados históricamente que orientan y defienden la identidad de los pueblos amazónicos y andinos.
+Impulsar la vigilancia y monitoreo ambiental participativo desde las organizaciones locales para prevenir la afectación de derechos y el incremento de los conflictos que genera el extractivismo.
+Acudir a la justicia internacional para buscar sanciones contra empresas multinacionales violadoras de derechos.
+Proponer e impulsar instrumentos políticos para ello.
+El FOSPA se solidariza con los pueblos afectados por las guerras, la intervención de sus territorios y la criminalización de la protesta de los defensores/as de derechos que les obliga a abandonar sus territorios.
+Los pueblos amazónicos y andinos reunidos en el VIII FOSPA reafirmamos nuestro compromiso con la vida y la Naturaleza, convocando a construir y fortalecer una gran alianza de los pueblos 4 basada en el reconocimiento y respeto de nuestra diversidad y convicciones pero también de nuestros disensos.
+Siguiendo el camino trazado por los Foros Sociales Panamazónicos, el llamado a la lucha y la resistencia continúa.
+Que así sea
+Terreno en reserva
+El cercado de la casa está espaciado
+Shawit ha quedado marginado
+Abran espacio en el camino para que el anciano pase
+El chico que iba a ingresar ha quedado excluído
+Yo estudio por la tarde
+La telaraña ha tapado el camino
+ujik esatne
+Nuestro antepasado fue el muun Chiwan
+Dicen que iwa fue persona
+Así le dije a mi hijo
+Porque estaba enfermo le dí medicina y le deje acostado
+Dejemos construyendo un tambo
+En mi purma tengo un tambo
+Comamos la verdura sancochada
+Él come así
+El perro ladraba por allá
+Basta es suficiente para mi
+Yo, ahí nomás, ya me llené
+Tus cosas estaban de esa forma
+Las cosas parecidas a éstas se malogran rápido
+Por qué son así los niños
+Me preocupa cuando los jóvenes cometen acto sexual prematuramente
+Esa misma persona era el que te buscaba ayer
+A mi me das eso mismo
+Por allí mismo voy a ir
+Él mismo llegó ayer
+Lo que hemos conversado así será cuñado
+Cuñado de esa manera voy a trabajar mi terreno
+La cerbatana que esté así, recostada a la pared
+Las plumas de aáu son muy lindas
+Las plumas de aáu sirven para hacer corona
+La creciente inundó la casa
+He matado al líder de la manada de sajinos con el curaré
+Tenía mucho masato pero ya se acabó
+Las plantas silvestres que han dado fruto son inacabables
+El término de la construcción de casa
+En la última parte del libro se encuentra el índice
+Usted llegó al terminar la reunión
+La piedra de afilar el machete está en su desgaste final
+Los animales silvestres están en extinción
+No sé
+Estoy buscando achám para comer con boquichico
+No sé
+Las mocahuas lavadas se dejan bocabajo
+El terreno que yo poseo le pasaré a mi hijo
+Iyash achíamu
+Los militares van ha reclutar en el verano
+Se toca la columna en donde siente dolor
+Contagiarse; alguna epidemia o alguna enfermedad
+El niño se contagió la gripe
+Se encuentra en el calabozo por violación de una menor de edad
+El asado de carachama es muy rico
+Hijita tienes que aprender a asar el pescado
+Las personas prisioneras estaban en el calobozo
+El que causó el problema era capturable
+El niño que, se quemó era intocable por el dolor
+La tinaja recién hecha no se puede tocar
+El cuero de iguana al secarse se quedó pegado en el palo
+Para no caer al abismo se agarró en el palo
+Integrándome con los profesionales voy a conseguir trabajo
+He cogido tanteando con la mano las carachamas
+He encarcelado a la persona que roba
+He atrapado la cría de un sajino
+Vamos a sacar la chonta para llevar
+Vamos a sacar el carahuasca para la pretina de la canasta
+Vamos a sacar el cogollo de la chambira para torcer  Palpar; tocar
+Yo solamente he tocado para mirar
+Yo lo clavé para que no se despegue
+Voy a abarcar toda la tierra
+Esa cosa está para uso de cualquiera
+Clávalos con el martillo
+Necesito clavo para clavar el palo
+Pega el papel roto con la goma
+Nombre de comunidad del distrito de Imaza
+Podemos sembrar aguaje si queremos comer suri
+El encargado de cuidar la casa
+Nombrado, mencionado sobrenombre, apodo
+En la reunión mencionaron su nombre
+Batsatkamu apuji atin tusa adáimau
+Mencionar a alguien sin saber su nombre
+Elegir en una asamblea a un Jefe
+Los ojos están muy cerca de la naríz
+Cuando te acercas a un animal manso no muerde
+Forzar a otro hacer el acto sexual, violación
+Existen personas que permiten cometer adulterio a sus parientes
+Ayer llegué a medianoche
+Llegaron personas para la reunión
+Hizo cargar el mitayo en la espalda de su señora
+La persona mala demuestra su personalidad e imagen negativo
+El gusano se transformó en persona y enamoró a la mujer
+El alma se presenta en forma de persona
+Considerarse extraño con sus parientes
+Mi hijo está en la etapa de la adolescencia
+Personificar
+En la historia de nuestros antepasados los animales también son personificados
+El niño ha desarrollado
+Al joven le doy un trato digno
+Hijo, no puedes ver ni dar un trato indiferente a tus parientes
+La señorita considera extraño a su pariente
+Yo adopté a un niño huérfano
+Como persona no hay que ser irrazonable
+Pamau ípattag tama yaunchmame
+Consolar al niño que llora demasiado
+He alargado la fecha de mi retorno
+El plátano está verde
+Soléen afuera el cacao
+La mujer dice, voy afuera
+El patio donde uno vive debe mantenerse bien limpio
+La carne de la doncella es muy rica
+Los niños aprenden a escribir
+Las niñas aprendieron a dibujar figuras en la mocahua
+Cumple la tarea viendo el libro de escritura
+Compra el lapicero
+El documento escrito por el profesor
+El profesor le escribe una carta a su superior
+En el cuerpo del animal hay una marca
+Cuñado salgamos afuerita para conversar
+El machete que no veía estaba hacia fuera
+No se junta con personas ajenas para que no nos enseñe malos hábitos
+Si la huairanga pica al pasar por el camino es porque nos va a ocurrir problemas de adulterio
+Espacio
+En nuestro territorio ya no hay un espacio
+Yumigmat agkán, kuchija agkántai, pegak agkántai, ekemtai agkántai
+Mi padre no está desocupado
+En mi casa no hay espacio
+La casa de mi tío esta libre
+Hay una vacante para un estudiante
+La mocahua está vacía
+Yo estoy libre
+Vivo tranquilo sin ningún problema
+Todos nosotros, no nos hemos librado de esto
+Waji jeganum, agánum utuakbau yajuaka agkan emámu
+Las cosas que habían amontonado han sido despejadas
+Ocupado
+El asiento no está libre
+Mi hermano está impedido por desobedecer a mi padre
+Tengo una hija soltera
+Limpiemos el patio para despejarlo de basura
+Liberemos a la persona detenida
+Rocemos para librar la espesura del bosque
+En otros lugares no hay árboles todo es desierto
+No hay espacio para poner la cama
+Mi casa es muy espaciosa
+Me voy a librar si soluciono el problema
+Si tu viajas vas a desaparecer
+Si dejas el lugar donde estás vas a desaparecer
+Si al niño no se le baña bien le saldrán heridas en la cabeza
+Regresemos rápido a la casa porque mucho molesta la abeja al niño
+Relato de la cosmología awajún
+Cuñado visítame por la tarde para tomar masato
+Mi padre ha cazado las crías de armadillo
+Libra la cama para que mi cuñado pueda descansar
+Mujercita, por la tarde vamos a anzuelear
+En el alto Marañón no abunda la shapaja
+Abunda la abeja en el río porque es verano
+En el Marañón abunda la ronsapa
+Para que no quede mal hecho yo ya había anunciado
+Quién puede hacer ese trabajo que aún queda
+lávale las manos a tu hermanito
+Hazle defecar afuera a tu hermanita
+Los demás también dijeron que es posible hacer
+Los demás dijeron que se le castigue pero nuestro jefe dijo que no es necesario hacerlo
+Cuando el profesor te haga preguntas debes saber responder
+El maíz está lleno en un saco
+Mi canasta está por llenarse
+La avispa agkaína es perseguidora
+Tendido con una linda tela
+Estaba correteando a la gallina para atraparla
+Hija deja de estar pensando en casarte, aprende a trabajar
+Hay mujeres solteras en nuestra comunidad
+He criado al cotomono macho
+Varoncito has llegado
+Responder por escrito
+No me gusta contestar a mi padre
+Así sea por siempre, conjurar
+Hay que conjurar para que abunden los peces
+Que sea hasta aquí el trabajo de rozo
+Tu también que así seas
+Que seas siempre tal como eres
+Dijeron que va a haber una reunión
+Tender la cama para que duerma la criatura
+Tú, también tienes chacra nueva
+Muchachos ustedes también deben aprender a invitar
+En la chacra había ajach vamos a sacar
+La planta de uña de gato es muy buena para todas las enfermedades
+Para pedir yuca se conversa con la dueña de la chacra
+Ajáim, mató a la madre de Etsa y la devoró
+La patarashca se hizo pegajosa porque se está malogrando
+Por el camino de la chacra no se hacen los dardos
+En la chacra de mi madre
+En mi chacra abundan las plantas sembradas
+Las semillas brotaron
+He perdido las semillas de la planta que llevaba
+Hacerle enfermar al hijo por la fiebre
+La mohena ha sido tumbada por Tuyas
+Se puede aprender a prevenir la muerte de nuestros hijos
+Hermano no cortes esa planta de cedro
+Ninguna vez he perdido un hijo
+No tumbó el aguaje
+Las semillas de las plantas no servían para cultivar, por eso las he botado
+En la chacra nueva habían sembríos de las plantas
+Cuidado de ingresar en los sembríos de mi chacra nueva
+Ustedes las mujercitas también deben aprender a sembrar
+En este tiempo de verano los padres de familia están sembrando maní
+Perder un hijo o hija
+No hay que ser mezquino
+Es tiempo de abrir chacra
+Aprendan a convidar
+Invitar a los parientes
+El tucán se posaba muy lejos
+Al jefe siempre le he tenido respeto
+No he podido hablar porque me he guardado
+Aunque quisiera visitar no puedo porque me da un recelo
+La mujercita es intrépida ante sus adversarios
+Respeto en el trabajo
+Respeto para ingresar a una casa
+Respeto a la multitud
+El señor Shawag es tímido
+Se pide con valentía si estas que te mueres de hambre
+Tener recelo al apu
+Tener respeto a la madre
+Se han reunido personas respetables
+Desconfiar de una mala persona
+Al anciano hay que mirarlo con respeto
+Al padre y a la madre se le conversa con respeto
+Hablaste valientemente en la reunión
+Yo recogí lo que estaba botado
+Mujer abandonada
+Lo echaron de la casa
+Corta y bótalo
+Expirar
+Ya expiró, ya murió
+Las cosas de su marido las tiró para botarlas
+El susto del niño se lo quitaron con el icaro
+Estas cosas que ves son botadas
+A mi hija le hice separar
+Dice que le invitaron a Tama y se fueron llevando la canoa que la hicieron perder en el pongo
+Lo han botado desde hace tiempo
+La canoa está bien rota
+La persona estaba bien en desgracia
+Me toca la siembra de yuca
+Me toca la tumba de árboles
+El armadillo tierno en patarashca es muy pegajoso
+El árbol de ajátsjats abunda en el monte alto
+Mi chacra está hecha en una pendiente
+Arrojó en la parte de abajo
+Así es la vida, por eso no se habla sin saber
+Dame el jengibre para la gripe
+Las tripas de armadillo las arrojó al río
+Estacas prendidas para medir el terreno
+La mujer cuando está de cólera tira las cosas
+Jóven atízame esta leña, por favor
+La avispa le picó al muchacho en el pene
+Joven ayúdame aquí por favor
+Kanu awamu dupanti dekapamu numi baseja ajinmau
+Para medir el terreno han ido plantando palos
+Etsa con el conjuro se llenó de niguas en su pie y como esperar a su mujer fue sacando las niguas
+A mí hijo, lo tumbé de la cama y lo levanté
+Más luego voy a vistarte a tu casa
+Algún día tendré que regresar a mi tierra
+Nunca me olvidaré
+Nunca podré perdonar
+Kusui
+Las gallinas crecen bien en la isla
+El bujurqui se pesca con el anzuelo
+Verter, echar agua en la olla para cocinarla
+Echale agua a la olla para cocinar la yuca
+Calienta el agua y échala en la tinaja para diluir el masato
+Para preparar la pintura facial de quinilla se agrega el achiote
+Las cosas son viejas
+Los problemas ya son inmemoriables porque ya pasaron antes
+Viejito, muy usadito
+Mi pampanilla esta muy viejita
+El problema que están comentando es muy antiguo
+Seguir el camino para la toma de alucinógenos para que el espíritu poderoso, sobrenatural de los ancestros nos transmita la visión
+Cosmología awajún
+Los awajun tenemos visiones
+Nosotros tenemos quien nos ayude a redactar documentos
+El perro se engusanó donde el achuni lo mordió
+Con el bambú me he cortado la mano derecha
+El niño para tomar la leche se ha colgado en el seno de su madre
+El gigante Iwa le jalaba de la cintura al mono blanco para arrancarlo
+Mi abuelo hace cinta para la correa
+Ceñirse bien la pampanilla con la cinta de amarrar
+A su hijo lo ha castigado con la correa
+Amárrale bien la sonaja en la cadera
+En caso de perderse, se sale siguiendo la bajada de la quebrada
+Me voy río abajo
+El niño al resbalarse se ha dislocado
+Ponerse el sol
+El sol se está poniendo, y me preocupa cómo estarán los niños
+El abdomen del majás ya está cocinado
+Traeme rodando la leña
+He visto la masa de masato almacenada en una tinaja
+Es la culata de la escopeta
+Jalando hicieron caer las calabazas que estaban en la canasta
+Los peces que pescó se dividieron
+Nos vamos a dividir la carne
+Repártanse las frutas
+Para tejer la pampanilla ha preparado la urdiembre
+El dormitorio está dividido
+El número de serie del motor
+Parte separada de un grupo de objetos o personas
+Está separado el arroz que se va a vender y, lo que no se va a vender
+El hígado de sajino ahumado es bien rico
+En la planta de mi pie me he pinchado con una espina
+El niño se ha cortado en la palma de su mano
+Mi cuñada cela a su esposo
+Celar a la mujer
+La gallina protege a sus polluelos
+El señor mira en forma vigilante
+Hay una máquina reservada
+El señor Yuma habló en defensa de su hijo cuando lo quisieron detener
+El señor Kayas cela demasiado a su mujer
+Hay una despedida al jefe de la educación
+El tío se despide de su cuñado
+Le encarga el mensaje a su hermano porque regresa a su tierra
+El muchacho cometió una falta y su tío lo ha aconsejado
+Dice que mandó mensaje para enamorar a la mujer
+El señor Samekash dejó recomendando cuidar de su hijo
+Los niños lanzándose con un palo se picaron
+El boquichico que salió lo picaron con una flecha
+La cría de un perro cazador
+Habrá pago para las personas que trabajan
+Nacimiento
+No se sabe cuando nació el niño Sol
+El profesor que trabajaba ya no esta, lo ha reemplazado otro
+Las alas del escarabajo chico sirven para aretes
+Arete de las alas del escarabajo grande
+Hay un pago por cargar ripio
+Cierra la quincha del corral
+El machete está muy caro
+El pagador ha llegado a Napuruka
+La carne del monte debe tener poco precio
+Hay remuneración por el trabajo
+Pagar la deuda, la cuenta
+Compré ropa y cuando fui a pagar en la caja, no me dieron bien el vuelto
+La mujer que no podía concebir ahora ya tiene un hijo
+Le dio de tomar pastillas al niño porque estaba con diarrea
+El perro siguió una punchana y lo hizo entrar a su hueco
+En el cruce del camino voy a prender un palo
+Lo agarré pero volví a soltar al boquichico
+Enviar un documento
+Lanzar una isana
+Persona detenida y suelta
+Lo enviaron para que trabaje
+Al subir al árbol se desprendió y casi se cae
+La lanza cayó verticalmente de punta
+A los que se fueron no los he podido alcanzar
+Recuperar, alcanzar de un retrazo
+Me he puesto al día en lo que me retracé
+A los que me dejaron, los he alcanzado
+Yakí wegau amamkiu, waanum waigka amamkiu
+Encontré el camino con mucho sacrificio
+Crucé la quebrada metiéndome hasta el cuello
+Por estar saltando me he hundido en el barro
+El hombre Luna agarrandose del hilo se fué al infinito del cielo
+Que solamente a ti nomás te dé
+Dame el cuchillo para que no te cortes
+Sigue cruzando el camino
+Come tú
+Nuna nuniku asamtai, Etsa yumijauwai dutikamu asa yamaikish nejen yuuwai
+Amich y kujancham abrieron la patarashca y la comieron
+Saludo a los profesionales que llegaron
+Satisfacerle los antojos
+Abuelo, yo he venido a conversar con usted
+La planta de ampámpag se dá de tomar al perro para desparasitarlo
+Variedad de la planta silvestre más desarrollada en su tallo
+El enfermero trajo medicina solicitando a las autoridades
+Reserva, sobra
+Sobrar
+Curar a un enfermo
+Aunque trabajamos ambos no pudimos terminar nuestro trabajo
+Tomarse todo el chapo de yuca servido
+No se promete
+La soga de la canasta
+El cebo de las trampas
+Los peces son el cebo para la boa
+Por seguir al animal me caí tropezándome con una liana
+Prometer, ofrecer, empeñar la palabra
+Religión, sacrificar; diezmar
+Inocente por el robo
+Ofrecer la cabeza de un animal
+Promesa para comprar una casa
+Inculpado por robo
+Segamau
+Comprometerse para casarse
+La guaba se puede coger amarrándose los pies con una pretina de soga
+Si sientes frío caliéntate en la candela
+Antiguamente los antepasados no sabían usar el barbasco para pescar
+Por eso, los muun para pescar dicen: “Ancháu te está pescando; y los boquichico, lisa, dicen que se burlan de ti” hacen este discurso para echar barbasco y que el efecto del barbasco sea más eficaz
+Mi abuelo cuando echa barbasco siempre llama a Ancháu
+El tábano pica muy fuerte
+Está despeinado porque acaba de levantarse
+Voy a cantar un canto de mi recuerdo
+El que ha cometido el crimen vive en alerta
+Entre hermanos se deben amar
+Extraño bastante aquella comida tan rica que comimos
+Mi recordado tío vive en Bashutak
+Mi amado hermano me ha dejado
+Me ha dejado la mujer que amo
+Mi hija es muy amable y cariñosa
+Es muy difícil que la gente de ahora resucite
+Es difícil recordar todos los relatos antiguos
+Te advierto de los acuerdos tomados
+Te hago recordar el acuerdo que tenemos para ir de cacería
+Por mal parto perdió la respiración y con ajengibre la hice reaccionar
+Diich Tsawan anéntan yachai
+El muun Samik sabe icarar al perro
+El tío Samekach sabe icarar a la mujer
+Hasta donde va llegar con sus ideas
+Estoy pensando que cosa voy a escribir
+No me interrumpas estoy reflexionando
+Ya he decidido
+s
+Tengo pesar de lo que no he hablado
+No voy a cumplir mi decisión de cosechar las frutas silvestres
+Honrado, honesto
+Por mencionar a su padre lo han herido
+Al expresar mis ideas, los otros han reflexionado
+Payash no tiene interés en sí mismo como para ser autoridad
+El Iwa era bien zonzo por eso lo mataban engañando los Tseje, Tigkishap, y otros
+Los niños dementes nacen cuando se usan los medicamentos farmacéuticos sin conocimiento
+Hay ahorros para hacer la chacra
+Al jefe también le voy a dar asiento donde tu estás sentado
+Iba por el monte subiendo la cuesta para cazar
+Habilidad
+Tocar
+Tocar solo con la mano
+El niño siente mucho dolor porque le picó la izula
+Hábil en aprender
+Es obediente cuando se le aconseja
+El joven es bien obediente
+La hija es desobediente
+El niño desobediente nunca va a obedecer aunque le aconsejen
+Enterarse de las críticas de nuestro mejor amigo
+El señor Paati es escuchado y respetado cuando habla
+La señorita Suwa es muy obediente con su madre
+El profesor explica bien claro
+La expresión de mi tío es incomprensible
+Luna llena
+Señor que hace comprender sobre la vida a través de ejemplos
+Criticar
+Hacerle oír y comprender a un desobediente
+Los tumbos bien cargados estaban por sentarse en el suelo
+Poner o prestar atención
+No hagas tanta bulla que me vas a romper el tímpano
+Me casé con mi prima, hija de la hermana de mi padre
+Ése Iwa, que va con su jicra tan grande para cargar su mitayo
+Vestir a una criatura
+Allí había
+Déjamelo ahí
+Papinum agaja anujámu
+Parchar la canoa rota
+En la tinaja nueva, mi mamá ha almacenado la masa de masato
+Atracó para recoger a su hijo
+Vestía ropa parchada
+Arreglaron el puerto
+El puerto de Urakusa se había derrumbado
+Mi abuelo fue maltratado por los mestizos
+Los mestizos nos quieren quitar la tierra
+El pucacuro rojizo ha comido toda la patarashca
+He comprado la falda que confeccionó mi madre
+Tuyas alcanza a su padre el bejuco torciéndolo
+El señor Tsemán es como mi padre
+En forma sorpresiva llegué a la casa de mi padre
+En el Alto Marañón el apapájua aparece en la época de verano
+El cuerpo del manguaré es cilíndrico
+La mujer no quizo bailar con su marido y él a la fuerza la quería sacar
+Colocar bien las hojas alrededor del nido de la gallina
+Un señor malo había perforado la calabaza donde el niño íba a cargar el agua porque lo odiaba
+Apátka yanámu
+Lo que está separado se puede unir
+Carga juntos los dos trozos de leña
+Se casó con la hermana de su esposa
+Máquina de coser zapatos
+Mi mamá está cociendo mi camisa
+Mi papá se internó en el monte doblando las ramas de las plantas para guiarse
+Mi hijo conoce la técnica del doblado de las ramas para no perderse en el monte
+Al niño ahogado que rescataron lo han echado boca abajo
+Grande
+El director de los profesores ha llegado para supervisar
+Yampan preparó la base de la olla y la señora Takash la malogró
+Poner en el suelo la canasta
+Corta las presas más grandes del animal
+El bufeo abunda en la parte baja de la selva
+Los antepasados para dormir trancaban bien la puerta
+Porque era bien grande el árbol no he podido tumbar
+Mi papá sembró frijoles limpiando la purma
+Nuestros ancestros adquirían el pedernal a través de la visión
+Con el eslabón prende el fuego
+Dio a luz pero aún no bota la placenta
+Cobíja al niño que está con fiebre
+Me cobijé con la frazada porque sentí mucho frío
+Al niño que se vuelve dormilón se le da de tomar el zumo de tabaco
+El señor Wampush era muy espontáneo y dinámico
+No se debe castigar tanto a los niños
+Viejita vamos a sacar chonta
+Todos los niños
+Todos los peces
+Todos los animales
+Se ha accidentado al final del trabajo
+Todos juntos vamos a salir para ayudar en el trabajo de mi madre
+Terminar el rozo
+Acabar la comida compartiendo con los demás
+El agua es inacabable
+Dicen que los medicamentos enviados para el apoyo ya se han acabado
+Al final del trabajo vamos a reunirnos para conversar
+La última cría de huacharo se llama panchaji porque es flaquita
+Has venido finalmente, pero ya estamos acordando todo
+Entre varios esperaban a Tuwish, Shushui, Yagkun, Tíiju, Yukuju para salir y atacar a Ugkaju, pero de tanto esperarlos se adelantaron
+La señora Tijigkas le cuchichea a su hermana contándole sus problemas
+Cuchichear entre dos hombre o mujeres
+Se fué a sacar suris de la palmera
+Han desenterrado la tumba
+Nuevamente vas a volver a escribir
+Algún día te acordarás
+Me devolverás algún día
+Simplemente estaba ayudando a hacer un documento
+Al ver que no ha cumplido con su trabajo, le dije, que en otra oportunidad no me vuelva a pedir ayuda
+Responsable de un trabajo
+Al resbalarme he roto los huevos
+Las rocas están bien resbalosas
+Han entregado un documento para que lleve a la ciudad
+Han responsabilizado a mi hermano para solucionar el problema que hay
+Apoyo a los niños huérfanos
+Quitar el terreno cedido
+Cria de gallina
+Las piningas se lavan y se colocan volteadas en la barbacoa
+Etsa envía a Tseje para que observara cómo, Yumi construye su casa
+El perro se ha desatado
+En la reunión se ha acordado lo que vamos a hacer el próximo año
+Revelar la visión que le dió Ajútap
+Con mis compañeros voy a trabajar
+Ustedes van a comer junto con el jefe
+Cooperando en el trabajo se avanza mejor
+El diablo se arrima siempre en el ojé
+No, a mi no me des
+Coge con tus manos una porción de maní para que comas
+Por casualidad dijeron anoche que iban a pescar, pero no fueron
+Estamos en un lugar donde no hay peces
+Etsa compitió con Amich en la pesca
+Aunque sienta cólera lo aguantó
+Soporto los problemas más que otros
+La picadura de alacrán me duele insoportablemente
+El señor Chijip se considera valiente y quiere competir en la pelea
+Yo lo desafío
+Aguantar, soportar
+Puedo soportar el peso
+Se ha puesto la corona nueva
+El señor Chijiap le pone la corona a su hijo
+Mi papá hace un sombrero de tamshi
+En mi tierra no hay hojas para construir casas
+Separaron a los que peleaban
+Han destetado a la criatura
+Jalar el tamshi
+Necesito la canoa para vadear
+El pez se escapó después de estar atrapado en el anzuelo
+El bebé que esta mamando la teta no se puede separar de su madre
+Mi hermano no estará
+No existir por morir
+Yo no voy a estar en mi casa
+Que él suba y coja la guaba
+Antiguamente cambiaban la aguja por el caucho
+El cuento del venado y el motelo
+El relato de Etsa y Yumi
+Comentario
+Comentario de una noticia
+Mi hija conversa con el jovencito
+Desde niño se debe aprender a hablar
+Hay personas adultas que son muy criticonas
+El Jefe dijo que nos va a comunicar el tema de la reunión cuando todos lleguen
+Wainkamu jikattsa, juuja augmátbau
+Mi abuelo cuenta un relato sobre los antepasados
+Leer un relato de los antepasados a los niños
+El hombre Nantu se fue al cielo porque su mujer Ayaymama no le invitaba el chapo de zapallo
+El niño lee la carta que le escribió su padre
+Mi hermano ha cazado una pucacunga con la cerbatana
+Sancochar la yuca
+El agua de yuca sancochada también se toma caliente
+En mi casa había yuca recién sancochada
+Mi hijo me habla sobre la agricultura
+El niño ha quemado el abanico
+Mi tío se fue a cortar caibros con su hijo
+La víbora muerta está colgada en la base común de dos ramas
+La canasta que venía cargando mi mamá se enganchó en una rama cortada y se cayó
+Las mujeres de hoy llevan la canasta colgando en el hombro
+Para que no le pique la manta blanca abanica al bebé
+Devolver
+Sekuut molesta le ha devuelto la gallina que le regaló su hermano
+Padre, hay algo para comer
+Awajúnik nuwen buchakin najatua apega ajakui
+Parar, levantar
+Poner guardia
+Meter en el cuerpo un objeto puntiagudo
+Plantar
+Los jóvenes de hoy toman mucho aguardiente
+Hacer regresar
+Hacer regresar a los que se escapan por amorios
+El agua empozada en el hueco del árbol sirve para curar el lisiado
+Los madereros ya depredaron la caoba
+Él amenazó por cólera pero no cumplirá su palabra
+Me enteré que mi hermano fue amenazado por su cuñado para pegarle
+El señor amenazó con matar al apu cuando le quitaron el terreno
+Guarda la cobija encima del pitak
+Cavaron poco profunda la poza
+Tejer
+Mi abuelo teje la jicra
+Hijita aviva el fuego con el abanico
+Al niño lo llevó y le hizo entrar a su casa
+La polilla enseñó a hacer la canoa
+El joven tiene mucho dolor en el corte que se hizo en el pie
+Dar golpe con el palo a la culebra
+Los niños se golpearon
+Se ha fracturado porque lo abollaron con el palo
+Por trabajar en el rozo me he cortado el pie
+Lloraba golpeándose en el pecho, por la muerte de su hijo
+Los hermanitos se golpean
+Tocar el tambor en la fiesta
+Golpear al chancho con el palo
+El apu ha comisionado a mi hermano para que comunique a la gente
+Mi mujer dejó huir el añuje que habiamos agarrado
+Envié un hacha a mi suegro porque me pidió
+He recibido la encomienda enviada por mi madre
+Lo remató con el golpe en la cabeza y lo mató
+Calienta el chilcano de pescado para que no se avinagre
+El niño ha empeorado más de lo que estaba
+Desmiente bien, aunque ha cometido el adulterio
+El señor Chumap apunta para pucunear la maquisapa
+Mandar encomienda a un hermano
+Estaba por allá
+Quitar la ropa al niño cuando está sucio
+El niño molesto se quitó la ropa se quedó desnudo
+Sachapapa sancochada
+El niño que se quemó se ha pelado la piel
+No es de acá sino de allá
+, aishmagku junika tsupimakaim tichamkajam
+Los niños van a su casa porque llegó la hora de descanso
+Tsatsupig es mi mujer, la que me hace compañía
+El jovencito es mi compañía
+La limonada está demasiada dulce
+Los antepasados peleaban con ayám usada como lanza
+Los niños descansan
+Ustedes hijos, no deben traicionar a los parientes
+Tengo el derecho a defenderme
+Cuando me pegaban me he defendido
+Defendí a su hijo, porque lo castigaba demasiado
+Siendo pariente es traicionero
+Le disparé al venado que estaba de espaldas
+Las chozas o ayámtai de Shajian son numerosas en todo el cerro
+Hizo cargar la tinaja para que la lleve a la chacra
+Ha tendido la ancha cobija en la cama
+Comió bien salada su comida
+Cuando te vayas, lleva a tu sobrino
+Solamente había venta de ropa
+Se enjuaga la boca con el agua que se ha juntado de lluvia caida, para ser expresivo
+Cuando venía cayó un palo a mi lado
+No me has visto porque estaba pegado a mi madre
+Mi cuñado abrió una chacra muy cerca a la mía
+Teniendo al costado los dardos, reclama que los ha perdido
+En la cama de Ipak acostaron a Tsajuput para casarlos
+Suwa está en vísperas de dar a luz
+Se agravó el joven al que le mordió la víbora, porque le vío una mujer embarazada
+La mujer embarazada ha empeorado por ponerle enema
+Bien, ahora tu cuéntame
+El mango del hacha se ha quebrado
+El tío Ayúi danza muy bien
+Mi tío en vez de solucionar el problema de su hija lo ha complicado
+Mamai le dá de comer al pihuicho
+Nugkui le hace lavar la boca a su hermano
+El gallo, el pavo, el pato
+El guía de los gallinazos es de color blanco
+El visionario adquiere el poder del bólido de fuego
+Los niños vienen cubriéndose con hojas por la lluvia
+Se ha desinflado la pelota
+Mono machín, mono blanco, pelaje en general de color pardo intenso a pardo amarillento de aspecto fino, moderadamente largo y algo denso
+Seré breve en la conversación para irnos
+Descansemos un poco y luego nos vamos
+Al poco rato, más luego
+El niño de cólera ha desinflado la pelota con una espina
+La pelota se ha desinflado
+Las larvas depredan las hojas de yuca
+Relato awajún
+El masato está flemoso
+Toé, floripondio, planta alucinógena usada para conocer el futuro
+Chiwan está en su tambo porque tomó toé
+La vaca muchacha pone huevos en grupos
+Del cuero de la vaca se producen zapatos
+El niño se embarra jugando en el patio
+El dolor de la mordedura de jergón es como la quemazón de la candela
+Bakantáu canta dando señal de que alguien se va a enterar de alguna muerte
+Las hojas de casha vara puesta en el tijeral de la casa no deja que ingrese el murciélago
+Para cosechar la shakapa no se debe cortar el tallo sino se debe juntar con la mano
+Las cosas no eran sólo para uno
+Mi hijo está en un lugar húmedo
+El plátano bellaco está bueno para cosechar
+Músculo de la parte anterior del muslo
+Siento cansancio en mi muslo
+Tigre mitológico de la cultura jíbaro
+Tipo de rana comestible, su hábitat es la chacra, zonas deforestadas
+La especie de rana se prepara en patarashca
+Uku bakunum ugku pujugtuae
+Los horcones de mi casa están podridos
+A mí, invítame la pierna de la gallina
+Cayó en el combate
+Cuando otros estaban cazando las huanganas, fui a participar y casi me accidenté
+Por problemas ajenos me metí en líos
+Por un joven, la mujer se ha suicidado
+El joven ha caído en la guerra
+Está en peligro por el robo de otras personas
+Por algo simple, se ha metido en problemas
+Culpar en vano a cualquier persona
+Mató con bala al añuje
+Antiguamente la balata era bien cara
+Recién ha preparado los dardos
+Preparar el dardo
+Con huaca pescaron muchos peces
+Se han repartido instantáneamente las cosas
+Paujil gigante
+Dicen que el pico del paujil, antiguamente era su lampa
+Numijinak bukin ikinai
+Instrumento de tres huecos hecho del fruto de la chambira que se usa como juguete para soplar
+El perro se muere defecando sangre si come la chonta de chambira
+Un niño tranquilo difícilmente se pelea
+El oso hormiguero es manso
+Nuestro jefe es bien humilde
+Rompí la calabaza enana llena de kapok
+Sharara, Anhinga
+Quién huele tan rico, como a batút
+La gente desconocida de río arriba se ha establecido en nuestra tierra
+Todos están sentados esperando la pesca
+Este lugar está deshabitado
+Esta tierra es el lugar donde vivimos
+Los he dejado porque ya no alcanzaba traerlos
+Todas las cosas déjenlas en un solo lugar
+El señor come bien el genital del añuje
+El canero azul es muy rico asado
+Mi hermano trabaja en el rozo
+Voy a hacer rozo
+Siembra en el terreno que está desmontado
+Pescado podrido
+La herida que me hice con la cañabrava se ha infectado
+Tuvo un mal sueño, por eso, presagió su desgracia
+Persona que se comporta mal al juntarse con delincuentes
+Mi sobrino tuvo un presagio por tomar el zumo de tabaco
+Hermano, alguien ha muerto
+Tío dicen que alguien ha muerto
+Madre me he hincado con la espina
+La comida que has cocinado se ha malogrado
+Los niños de hoy se han corrompido
+Mina dukug wake besémag pujawai
+Descontento
+Está descontento porque le dije que no juegue
+Mina buitsjuig nijamchik béte pujume
+Cocinaron la sal y se la repartieron en cantidades iguales
+Me dieron completo el dinero
+La viga para la casa está desigual
+Es incompleto lo que me diste
+El mensaje no es igual tal como lo he dicho
+Corté el palo igualito
+Ha cantado bien parecido al tucán
+Tenía la canasta llena de frutas de chambira
+Pela bien la cocona con espinas y le das al niño
+El desembalse ha tapado la quebrada
+En la cashuera vamos a agarrar tanteando la carachama
+El cerro se ha derrumbado
+Ten cuidado, que el caldo de carne del monte no rebose
+La planta bicha sirve para poner enema a los niños
+En la comunidad de Ajachim cae granizo
+El río Buchigkis es muy frío
+Los ancianos aconsejaban que no se debe comer el maní molido porque sino ahuyentas al ajútap
+Después de bañarme me siento fresco
+Trajeron pescado congelado
+Hace mucho calor, saca al niño afuera para que se refresque
+Makichik yutai, umutai, takastin, niimpaim wajakin yuminum egkea bichátmitkamu
+Enfriar
+Al niño que está con fiebre se le baña con hierbaluisa para que le baje la fiebre
+Bajar la fiebre
+Ya me ha bajado la fiebre alta
+El frejol que sembraste no creció
+La joven toma pampa orégano porque está mestruando
+El pájaro biíshkin a través de sus formas de canto anuncia a la persona si le va a ir bien o mal en la actividad que va a desarrollar
+Mi ropa esta bien sucia
+El niño se ha ensuciado
+La ropa para el paseo debe ser limpia
+Ha venido con su ropa sucia, embarrada
+Si preparas pintura facial de violeta caspi tienes que darle una textura espesa
+Prepara puré de yuca para que coma el niño
+No brilla el sol
+Al niño que se quemó le ha calmado el dolor con la yema de huevo
+El árbol hace sombra
+Ya le calmó el dolor de la picadura de isula
+Ya me calmó la sed
+Me ha calmado el hambre
+He comido el chopé y calmé mi antojo
+Cuando los niños hacen mucha bulla, el bikua canta dando señal de malagüero porque algo va ocurrir
+Vamos a comer
+Cuando creció comenzó a predecir todo lo que veía de las personas, adulterio, la higiene, el crimen, el robo
+Bíkut jakauwai apachjai maaniamunum
+La mujer tiene como collar bísha
+El niño huérfano sabe trabajar
+La plataniza que han preparado está bien espesa y dulce
+El masato que recién han diluido está todavía espeso y dulce
+Cuando el cabello se hace grasoso da comezón
+Siéntense callados niños, para escuchar los consejos
+La casa estaba silenciosa
+,
+La bulla que tanto hacían, se ha vuelto silenciosa
+Está haciendo el telar
+La guaba no se come cuando está verde
+El señor Jempe está tejiendo un buchák
+Estoy tejiendo el vestido para mi esposa
+El hombre experto en cantar icaros le ha dedicado a la mujer, que llora inconsolablemente por amor
+En la cabecera del río Chiriaco hay bastante estalactita
+Mira su forma de caminar
+Ahora es tiempo de permanecer en casa, es tiempo de lluvia
+El horcón se puede mover porque está flojo
+Hermano no me puedo mover, estoy estable
+El motor se mueve demasiado
+Máquina paralizada que empieza a funcionar
+Cuantas veces te van a decir que reacciones
+El suri con chonta en patarashca es bien rico
+El pozo estaba bien seco
+No se le imita a la rana de la altura para que no se pudra la ropa trasera
+La leña de bukún es muy buena en arder
+Kuntinu, namaka ukunchi bukúnbau
+Fumar
+Fumar tabaco
+Chupar la caña
+Chupar la pepa
+El joven fuma el cigarro
+Una persona llegó vestida de color negro
+El cielo se ha oscurecido
+Mi vista se empaña
+Nublado
+Los ojos de manco son turbados, porque Etsa se los ha cambiado
+Cuando se toma el toé se empañan los ojos
+Estás despeinada
+El cabello de aquella mujer está desgreñado
+La persona está con la enfermedad de la uta
+El cuchillo está sin filo
+El niño tiene moco en la nariz
+Los hongos en patarashca son muy ricos
+Para aprender los icaros se tiene que absorber el zumo de tabaco por la nariz
+Vendo mota
+Tenía puesto un vestido mal confeccionado
+Tengo miedo de subir a un bote
+El rayo incendió al árbol
+Actualmente ya no tocan la guitarra o violín
+Mi mamá está vestida de colores moteados
+Vino bien mojado por la lluvia
+Cúbrele la cabeza con la tela bien empapada
+Paipainch cuando era persona malogró la canasta al tejer
+Wajukutskait
+Las heridas le dejaron marcas blanquecinas y humedecidas
+Por la cabecera de la cama de mi papá está la escopeta
+En el Marañón la charapa abundaba
+El martín pescador siempre pasa todas las mañanas río arriba
+El tío acorraló al añuje y lo mató
+Hermano báñate en el canal de pona
+Mi padre está poniendo el canal de pona para el agua
+El niño está chapoteando en el barro
+Dicen que el tigre usa el buzo o chaleco
+Alcánzame la chaqueta para ponerme
+El martín pescador cogió
+No cojan el caimito está verde
+En la puerta le han apretado los dedos al niño
+La hoja de yarina sirve para hacer la cumbrera
+La trenza para amarrar al perro está hecha de chambira
+La mujer con cabello largo, se lo está trenzando
+El jovencito está preparando el algodón quemado para hacer el fuego
+El curuwinse macho se come tostado
+Oso
+El oso abunda entre los cerros del Tambillo, Muyo y Tuntanain
+Los mudos tienen derechos
+El padre nos aconseja para que seamos razonables
+El señor Chaig aconseja al joven para que se case
+El sabio orienta para el buen vivir
+Idioma awajún
+Culpable del problema
+Cumplir la ley o el reglamento
+Lo estoy defendiendo porque le quieren pegar
+Defensor de algún problema
+El señor Majianu es un buen orador
+Las fibras de tamshi son muy delgadas
+Mi papá habla con mi tío
+Juntemos chicháu para Jugar
+Locutor, animador
+Mi hermano es un buen animador
+El río Kanus no es correntoso
+Los grillos cuando eran personas mataron quemando a Iwa, y lo comieron pellizcándolo
+Mi mamá le cortó el cordón umbilical al bebé con el carrizo
+Mi cuñado Atuyap ha cazado aves
+Cazar aves
+Tipo de ave mediana de color gris y marrón
+Tipo de ave pequeña con manchas azules
+Tipo de ave pequeña gris y marrón
+Trae leña
+En mi codo me he raspado con la espina
+Vendo mochila de chambira
+La mala hierba chiwayap, es muy dura para desenraizar
+Relato de la cosmología awajún
+Variedad de hierba chíjichi que crece más alta
+Variedad de hierba más pequeña
+Chijikás tagkumamuk shiig unuimauwai
+A pesar de ser joven anda con su ropa bien sucia y endurecida
+Las niñas no deben coger las mariposas porque cuando sean grandes van a estar abriendo y cerrando las piernas mientras están sentadas
+Le ha derribado su casa porque los horcones son de chikáun
+El gavilán come ratones y culebras
+Variedad de capulí
+Variedad de capulí un poco más grande
+Es tiempo de capulí pero sólo juntémos, sin derribar la planta
+Las yucas están guardas en la canasta
+Mi mamá para visitar a sus parientes de Potro, alistó sus cosas para viajar
+En la canoa de Kasen se han embarcado muchos y se han volteado
+El asiento chimpúi de Shimapuk era bien bonito y brillante
+Al tigre se le atrapa con la trampa de chína
+El majás cayó en la trampa de china
+Variedad de arbusto aparrado que crece muy bajo
+Variedad de arbusto aparrado
+La miel de chíni es buena para curar la carnosidad
+Las golondrinas también tienen su madre
+Las mujeres que hacen collares con chaquira lo hacen en forma de golondrina
+Mi hermana servía el masato en una pininga recién decorada con el látex de copal caspi
+Hechar latex de copal caspi a las piningas
+La cria del loro choclero llora mucho
+El joven recién casado debe abastecer a su suegro con leñas partidas
+Antiguamente los jóvenes se ponían enema del zumo de tabaco de color amarillo oscuro para tener visión
+El trompetero cuida bien a las gallinas
+Iina apachjig múun Chíwan ájakui
+Me bañé y me siento despejado
+Ha calmado la lluvia
+El asiento del jefe es muy liso
+El chuchuhuási preparado con aguardiente es bueno para la gripe
+Variedad de bejuco o liana
+Las coconas que mi hermana me ha invitado son agrias
+Especie de bejuco
+Madre sirveme plátano pintón para comer
+El pájaro carpintero come gusanos
+El niño está con dolor de muela
+El colmillo de huangana es muy filudo
+Comida malograda
+En el baile han pisado a un niño en los pies
+Mi papito juntó muchas guabas silvestres
+Echate boca arriba para ponerte las gotas en los ojos
+Leña partida
+Probar para ver si está cocinado
+El joven parte la leña
+Espero al señor para conversar
+Al majaz lo matan esperándolo en su camino
+Estoy en la casa cuidando al niño
+Niño ocioso
+La mujer se enferma del útero
+Dale de tomar medicina en gotas
+Cuando se tiene pereza es difícil levantarse por la mañana
+El niño tiene pereza
+Yo no iré, no quiero
+Yo no quiero la comida
+No quiero casarme
+No quiero comer porque he comido demasiado
+Quise venir pero me desanimé
+Akintui es alegre y bromista
+El tamshi está desenredado
+Voy a estirarme, ya me cansé de estar sentado
+Endereza el fierro que está doblado
+En el Marañon existe un estirón muy largo
+Espérame en el estirón del camino
+Mi mamá se encuentra muy contenta, por eso, de alegría está cantando
+Se divierte bien alegre
+Están graciosos porque están en la fiesta
+Se puede sacar fotografía a los niños que egresan
+Ahora existen cámaras acuáticas
+El niño remeda a su tío cojo
+Dibuja en tu cuaderno
+Vamos a tomarnos fotos para sacar nuestro documento
+Canta el icaro que ha aprendido
+Cuando el fotográfo me tome las fotos voy a sacar mi documento de identidad nacional
+El imitador en la fiesta hace sus presentaciones
+Con la cámara acuática toman fotos a los seres que habitan en la profundidad
+El dibujante ha dibujado una casa
+El dibujante ha dibujado un cerro
+miel de abeja
+La miel de abeja es buena para curar la tos
+Dispersar, difundir
+Dispersa el maíz para que se seque bien
+Este poquito de comida distribúyanse
+Anuncien el comunicado
+El niño está mordiendo el cuero de venado para comer
+Las víboras de la altura viven en las cuevas
+La brisa está bien
+He sembrado yuca dapiím en mi chacra
+Mi hermano dobla las hojas de palmiche para techar
+Mi padre cuando se va lejos al monte siempre dobla las ramas de las plantas para poder guiarse
+El niño cuando recién ingresa a la escuela escribe con lápiz
+El ratón roe el maní
+Desmotar el algodón o kapok
+El niño desmota el algodón
+En el tiempo de ocuera el viento va a caer fuerte
+Yo he pescado en cantidad
+Ven y aprovecha
+Yo tengo una buena cantidad
+El helecho es bueno para curar la hinchazón del cuerpo
+Senuji cruza la quebrada levantándose el vestido
+El viento ha levantado el vestido de mi abuela
+La mujer luce en el pecho el collar de la semilla de nuez silvestre
+Jempekit prepara el ayahuasca y toca el manguaré
+Dati después de bañarse está tomando toe que dejó preparando en el mate
+Samekach es pequeño, para ver se para en punta de pies
+Remover con el palo la huaca que se está chancando
+Soltero, joven, varón
+Varón acompaña a tu tío
+Si ciernes el masato bota bien la fibras de la yuca
+El niño huérfano que recogí ya está joven
+El joven no comió de vergüenza
+El hijo de mi hermana ya está joven
+Los niños son bien vergonzosos para presentarse en público
+Causar vergüenza, hacer avergonzar
+El muchacho malcriado causaba vergüenza a su padre delante de la gente
+Tama es bien grosero no tiene vergüenza
+La abuela a su nieta le aplica las hojas de Santa maría, cuando está mal del hígado
+El chico pescó varias motas
+La mujer se negó a servir el masato a los invitados y avergonzó al marido
+El Marañón está bien turbio porque ha crecido
+Con el látex de leche caspi y el achiote pintaron el recipiente
+Masticar el huito
+Masticar la flor de sacha mango
+Pata de gallina
+Pie de persona
+Pata de animales
+En los dedos del pie se ha cortado con el machete
+En el dedo pequeño del pie izquierdo le mordió la víbora
+En la trampa hecha para pata de aves cayó la perdiz
+El jefe de la hormiga soldado muerde y pica
+Mi hermano Chumpi pescó bastante boquichico con tarrafa
+Compra la ropa al niño midiéndolo
+Tiwish por sí solo se orientó para ubicarse del camino y así regresó
+Emboca para probar
+Sentir el olor mediante el olfato
+No tener suficiente conocimiento para la construcción de casas
+El jovencito no practica la filosofía del buen vivir
+Después de escuchar los problemas de amor que tuvo mi hijo con una señorita he comprendido el problema
+No se puede saber sobre el robo ocurrido en una tienda
+La señorita jugando le ha golpeado al joven en el brazo
+He reconocido a mis familiares
+Supe sobre la predicción de los problemas que van a acontecer
+El enemigo espía mientras va paseando
+Tengo un sitio donde puedo trabajar
+He descubierto la cueva de los huacharos
+Los profesionales demuestran sus conocimientos ante el público
+El palo que sirve para medir
+Está pesando el maíz
+Las estrellas son incontables
+Medición del terreno
+Señalar el cruce del camino
+A mi hijo también lo han considerado
+Pesar la yuca
+Vende la yuca pesándolo
+Lleva la medida para cortar la cañabrava para la quincha
+Medidor, instrumento de medición
+El tesorero nos va a pagar
+Los niños dan examen de conocimientos
+Mi sobrino es alcahuete de su hermana
+Los estudiantes, entre ellos, saben sus cosas
+Presentía los problemas que me iban a suceder
+Presentía que íba a hablar por eso me preparé por adelantado
+Presumía que vendría
+Realmente, es de verdad que habrá selección de los profesores de acuerdo a su formación
+Hermano, es cierto que hay problemas en nuestra comunidad
+De veras usted
+De veras ustedes
+Kugkuasa, apasa, dukasa wajukukita tusa dékamu
+Unuimat ajutkagtamu
+Sé manejar la canoa
+Conozco como andar en la ciudad
+Sé el nombre de mi jefe
+Primero que curen a las mujeres
+Sin saber bien ha hablado
+Por clavar en la pared me he chancado la mano
+Mi mamá chanca el maní para amasarlo
+Tayunts le ha ganado a Kigkis en el deporte
+En la competencia de la lectura ganaron las mujeres
+En la competencia del peso, Yanat venció a Wawas
+Extender una soga en la cueva de huacharo
+El plátano deformado (pegado uno a otro)
+Niño malcriado
+El pecho de la perdiz se da de comer al niño
+Me golpeé el pecho con una piedra
+He cazado la perdiz que estaba frente a mí
+El sol está esplendoroso
+Yo por eso dije que es seguro
+Él es bien sensato
+Sanchum se ha equivocado por tejer la canasta
+El niño que tartamudea
+Mi tío el que vive en Sijiak me ha invitado a pasear
+Reconciendo a mi pariente le he considerado tío
+Decía mi tío finado
+Hijita lleva lentamente a tu hermano que está enfermo
+Mirar las cosas que se venden
+Fijarse bien en una persona o cosa, tratar de conocer profundamente
+Fijarse, observar con mucha atención
+Al niño le cayó una piedra en la frente
+Por salir de noche al patio me he chocado con la pared en la frente
+Tener relaciones sexuales con una mujer querida
+El niño no puede ver al muerto
+Invisible
+El alma es invisible
+Varoncito con paciencia le das de comer a tu hermanito
+, wika juwi timajai
+Ellos pescaron más
+En ellos ha recaído el problema
+Ahora en nuestra comunidad existe la televisión
+Dar o vender a crédito, fiar
+Jintinkagtin aidau kuwashat diwimkagtug pujuinawai
+Persona que debe a alguién
+Sacar a crédito las cosas en los comerciantes
+Mi cuñado me ha garantizado para sacar a crédito la medicina
+Antiguamente, los antepasados no tenían el fuego por eso sufrieron bastante
+Antes los animales abundaban bastante
+La quebrada Kayamas está subiendo su caudal
+Dicen que la quebrada Pampaints ha crecido
+En mi nariz me dio la uta
+El pico del tucán
+La proa de la canoa se ha partido
+Cuando nos agripamos es difícil respirar y se tapan las fosas nasales
+Existen hojas comestibles y no comestibles
+Me han comentado que a mi sobrino le ha mordido un cascabel
+Mi hijo lleva mucho tiempo en la ciudad
+A su hermana le ha enviado bastante chambira
+Los de Shaamatak son muy corpulentos
+Mi mamá lame las hojas de patarashca de majás con chonta
+El mismo jefe que llegó ayer ha llegado hoy
+La madrastra del Sol Étsa, fue la mujer de Ajaim
+Mi madrastra me castigaba demasiado
+El viento malogró la cumbrera y por eso le puse otra nueva
+Mis párpados parpadean quizá estén muriendo familiares
+La abundante pesca que obtuvieron ha sido señal de malagüero porque iba a morir mi abuelo
+Cubrirse con cobija
+El niño se ha dormido, cúbrelo con la cobija
+El apu ha invitado a rozar el patio escolar porque está muy monte
+El machete es bien doble no se puede afilar bien
+En mi chacra la maleza ha crecido demasiado
+La corona está hecha con las pepas de quinilla
+Mi mamá ha dejado remojando los maníes para sembrar mañana
+Tengo caspa en mi cabeza
+Dónde está mi hija
+Después de servir la comida a tu hermano también sírvele el masato
+Burlarse, reírse
+Mi hermano me hace reír con sus bromas
+Burlarse de un tartamudo
+La patarashca de las tripas de pescado con la hoja de eép es sabrosa
+La inflamación del útero le duele demasiado
+El epidídimo del animal
+La pampanilla es teñida con el huito
+Sin darme cuenta me metí en el hueco de la construcción
+El niño se jalonea porque no quiere comer la carne
+Por pasear ha quedado atrapado por sus enemigos
+Llevar al niño de la mano
+Cargar la escopeta con cartucho
+A mi mamá la embarcaron en la balsa
+La canoa que bajó se quedó en la parte cóncava del río
+Guardar para otro
+Guárdale la comida en la canasta al muchacho que se fue de cacería
+Sí, yo también quiero
+Esconder en un lugar donde no se pueda ver
+La víbora lo mordió porque regresó muy de noche
+Los que celebraban durmieron a media noche
+La chancha está preñada
+Corta por el centro
+En el medio del río hay una piedra grande
+Estaba en el medio, por eso no me has visto
+Mi mamá destripa la gallina
+Embarazarse sin darse cuenta
+Ha cerrado el cuarto que está abierto
+En Shimpuents han descubierto una cueva de huacharos
+El ejéeje cortó un palo
+Comí, bebí y estoy satisfecho
+Descubrir la cueva de huacharos
+El remo está hecho de remo caspi
+Descubrir a los que están enamorados
+Mi mamá todavía no se alista
+Mi hermano se fue en la balsa sentado sobre las leñas
+Donde se sienta mi padre es chimpui
+Esos horcones se pueden mover a otro lugar
+La piedra grande estaba estable, la hemos movido entre todos
+El mechero está prendido
+Sentarse, sentar, estar sentado
+Mi mamá prende el copal porque es de noche
+Estaba parado acá, se retiró allá
+Estaba sentado sobre el motelo
+Las mujercitas comieron los hongos en el sector ekén
+Hacer sentar al niño en la cama
+Trasladar la casa a otro lugar
+Quebré la chonta justo donde termina el cogollo
+Mi mamá sentada despioja a mi hermana
+Mi hermano menor está de paseo por el río Santiago
+Hermano, habla con paciencia
+Han colocado el horcón con exactitud
+La pininga se hace cuidadosamente
+Guía al jefe
+Destacar en el estudio
+Vacea cerrando la boca de la vasija
+Hacer perder las cosas de otra persona
+Los jóvenes se jactan porque se creen profesionales
+Me siento orgulloso porque mis familiares son profesionales
+Han disminuido mis chanchos porque maté uno
+Retira esa olla
+Cuando estábamos trabajando nos sucedió una desgracia, la víbora mordió al niño
+El tío por tejer ha malogrado la jicra
+Por pegar a su mujer ha perjudicado su vida
+Los jóvenes han matado a alguien
+A esa persona no se le puede hablar con firmeza, porque puede malograr tu vida
+Si no sabes el uso de las plantas medicinales, no se debe utilizar puede ser perjudicial
+Por enamorarme de una mujer casada he tenido serios problemas
+Yo mismo me he causado la desgracia, por castigar a mi hijo le he fracturado
+Por cometer adulterio me he causado daño
+La señora Soledad se ha establecido en la comunidad de Urakusa, nunca regresará a su tierra
+Mi hermano se detuvo un rato
+Detener a una persona para conversar
+Está derramando el masato porque está demasiado lleno
+El machete es muy filoso
+El señor Ugkush no escucha porque es sordo
+Pesquemos en la quebrada con barbasco para sacar bujurquis
+La niña sube a la espalda de su hermana
+Niñito sube encima de tu padre para que te cargue
+El perro se aparea
+El gallo monta a la gallina
+El diafragma del añuje
+Solucionaron el problema de tierra conversando
+Solucionar un problema llegando a un acuerdo
+La pared de la fortaleza del señor es muy fuerte
+La mancha del niño es grande
+Cerrar la cueva del animal
+Cierra la puerta para que no salga el perro
+Corta un palo largo para poner la cumbrera
+La cumbrera de mi casa está podrida
+Limpiar la mancha de la resina de plátano
+La yuca asada está quemada
+Me duele la cicatríz
+La altura de la casa es elevada
+Las mojarritas duermen en el canto de la playa
+El varón es alto
+En el verano se trabaja bien
+Me mordió el perro
+Masticar yuca para las gallinas
+Ser buen hombre
+La maquisapa se mece en el árbol
+El columpio de los niños es de un bejuco que se cuelga
+Aquel joven es muy atrevido
+El instructor trabaja bien
+Los hongos armadillo han brotado
+De veras
+Me faltó la carne
+La avispa me picó en mi boca
+La canoa está atascada en la palizada
+Mi abuela se ishanguea con la ortiga
+Llena con trapos la parte donde está rota la canoa
+Al niño no se le azota sino se le ishanguea
+Sin castigar a tu perro llévalo al monte a cazar
+El pájaro étsa vuela alto
+Sol astro
+El sol solea muy fuerte
+Dutikam makichik uchi etsajai betek etsantug dukuji ajajin jiman yuwatatus pujau iyau, nunitai Ajaimpi nuwe jima juuktakama aya uweteak aishjin ujakui yaki ima jimanash amuawa tusa
+Personaje de la cosmología awajún
+Puesta del sol
+Étsá aketáijin , etsá akaetaijin
+Reloj
+Étsa jiínai
+Oriente, este
+Cuando el sol está casi entre los dos lados
+Rayo del sol
+Mediodía, cuando el sol está entre los dos lados
+Étsa tegáwai
+Se le puede curar a la que se envenenó con barbasco
+He curado al señor que estaba enfermo
+Han calmado al niño que lloraba de cólera
+Afilaste los machetes
+Sacar punta al lápiz del niño
+Solearse en pleno trabajo
+El brillo del fuego da buena luz
+El sol tiene luz propia
+El sol sale con mucho brillo
+Alcánzame el tamshi por el otro lado del cerco
+Pela la yuca para asar
+Suwa e Ipak hicieron madrugar a Nantatai
+La luna que amanece
+Me duele el incisivo de abajo
+Repartirse el pescado entre dos personas
+Tu perro cazador es parecido al mio
+El niño es idéntico al que fue su padre
+Mi cerbatana también es igual
+La fiesta siempre la celebramos a lo grande
+No le dejé hablar
+Se puede aprender a enfrentar los problemas
+Dale consuelo por sus sentimientos
+Hija aprende a soportar la sed
+Es el consolador
+Reforzar la casa que está por caerse
+Maté un armadillo íchig con el perro
+El niño se enganchó en un espinal y se rompió la ropa
+Tela rota
+Despedazar la carne ahumada
+Al bebé no se le hace cosquillas para que cuando sea mayor no tenga actitudes voluntuosas
+Mi hija lleva a su hermanita sentada en su cadera
+En la olla grande ha preparado el caldo de armadillo
+Lavar la ropa sucia y dejarla impecable
+Despejarse el cielo
+Me mordí la lengua
+La pava no se aleja de su nido
+Mi madre y mi padre son separados
+Separar a la mujer de su marido
+Hay muchas mujeres abandonadas
+A su mujer la hace avergonzar en la visita
+El camote asado es rico
+Tsapik habla en contra de su hermano
+Encontrarse en el camino
+En el trayecto me crucé con el sajino
+Encontrarse en una curva frente a frente
+Encontrar a una persona en el camino
+Entre nosotros vayamos al trabajo
+Revés
+Se iba a la ciudad, pero regresó
+Los visitantes han llegado
+El pasajero está pasando
+Dietar para tomar ayahuasca
+Está sensible la parte donde me picó el alacrán
+Visitar
+Teñir la ropa con el achiote
+El fierro se oxida
+La letrina es bien cochina
+La mujer gestante ya está por ponerse panzona
+Todos los pescados están envueltos
+Se rompió la muela y se quedó la raíz
+Con el cuchillo pequeño se hace el canal de la cerbatana
+Mi oído se ha llenado de cerumen
+El suri ha creado su capullo
+Yo maté a todos mis animales porque voy a viajar
+Mis hijos están muy enfermos, la enfermedad es muy peligrosa
+El caldo de chonta es rico
+El chancho llegó bien abollado
+Amontonar la leña en un solo lugar
+Lo que incuvó la gallina ya está rompiendo el cascarón
+Nos consolidamos para reclamar nuestros derechos
+Debemos de reunirnos para ir juntos
+Reunión de personas
+Reunir a las autoridades
+Vine a participar en la asamblea de autoridades
+La reunión de los padres de familia fue ayer
+Los padres de familia que se han reunido están regresando
+Entre varios han reñido al muchacho
+El palo que me lanzó el niño cayó cerca a mi
+Pilar el arroz
+A la hora de la comida me ha considerado
+La costilla del majás tiene manchas
+Junta para tu padre las frutas que se han amontonado
+Con mis vecinos hice la minga
+Prima de una mujer
+Primo de una mujer, prima de un hombre
+Primo de un hombre
+A Iwa los Tigkishap lo comieron horadando
+El niño se ha atusado el cabello
+Los dos se han adulterado
+Cometer adulterio con una mujer casada es muy peligroso
+Apaga la luz para dormir
+Los niños no deben tocar esa especie de luciérnaga porque es maligna
+Hacerle olvidar sus sufrimientos o preocupaciones
+No se toca el insecto de alas brillantes para que no se raje los pies
+La mujer sabe hacer fermentar el masato
+Mis parientes duermen en mi casa
+Doy posada a mis parientes en mi casa
+Estaba sufriendo y conversando le hice olvidar
+Le hice esforzar por no hablarle bien
+Al adúltero lo quisieron agarrar a la fuerza
+El monte es bien espeso para trabajar
+Vadeamos prestando la canoa
+El perro del monte
+Trajo cargando las hojas de palmiche que envolvió engrosando
+Los tigres viven en las cuevas
+Piaya camaya pequeña
+La boa sale a media noche
+Hijita está amaneciendo, prende la candela
+Hervir y endurecer la sal
+Hacer endurecer la pininga recién elaborada
+Traer leña a la casa
+Aumentar la crianza de animales
+El niño empachado bota mucha ventosidad
+Está muy nublado, va a llover
+Cuando comen la carne cazada con el perro, se debe lavar las manos en la ceniza de la fogata
+La diosa de la agricultura soltó ventosidades
+Mi diente premolar está picado
+Suspensión de la toma de ayahuasca
+Los jóvenes han suspendido la toma de tabaco
+La garza está en el agua
+Yo también tengo una chacra tan grande de arroz
+En la tinaja había bastante masato
+Regreso dentro de un rato
+La persona debe ser decente
+Si uno no es honrado no puede conseguir trabajo
+La huangana era así de grande
+He confundido a mi sobrino con otra persona
+Tantas veces le he pedido
+Estoy muy tranquilo
+Está muy avejentada mi cobija
+Cuando el jefe no cumple un acuerdo con los padres de familia, pierde su prestigio
+Eligieron a un jefe insignificante
+El problema era sencillo
+Tanto han comprado
+El niño sigue igual de enfermo
+Hay un niño loco andando
+La cerbatana hecha de huacrapona es muy buena
+Cumple perfectamente el trabajo
+Tumbaron tantas veces los árboles
+Con exactitud se teje la jicra
+Lo he amonestado varias veces
+Fastidía la bulla que hacen
+Ishangéate con hortiga para que te pase el dolor
+No bogues y para la canoa
+Muchacho no debes comer dulces para que no pierdas la fuerza de tu aire al pucunear
+Lava el vómito del niño
+Le satisfice el antojo de comer el suri a mi esposa
+Se puede hacer suavizar el aguaje para comer
+Lo hice pasar porque me daba pena
+Para que no contagie su enfermedad lo he trasladado a otro lugar
+Sólo miré al mijano que venía y los dejé pasar
+El niño aprobó porque sabe la lección
+Sentía mucha pena por el fallecimiento de su pariente
+Hasta ahora el problema de mi hermano está pendiente
+La corrida del agua del río es interminable
+Llegué al último
+He dado por terminado el trabajo
+Preparo comida para los docentes
+Has hablado en contra de nosotros
+A las mujercitas se les debe enseñar a cocinar
+Variedad de chopé
+Variedad de chopé
+Los jóvenes están siendo peones de los mestizos
+He rozado una parte en forma dispareja
+Han comido la carne en partes
+Mandar o llevar a un enfermo al médico o curandero
+A mi abuelo lo han llevado al médico
+Se fue a dar un contrato
+Un criminal manda matar a alguien
+En nuestro pueblo necesitamos una buena posta médica
+Hizo emborrachar a su hermano invitándole pijuayo preparado
+Ahora hiciste más grande la pininga
+La gallina enana es de cuerpo más grande
+La señora dejó de hacer la tinaja porque se endureció la arcilla
+Levantar al niño que se cayó
+Abre un poco la patarashca, para ver si está cocinada
+El camote asado es rico
+Calentado
+Antes vendian buenas enaguas
+Los antiguos cuando se molestaban con sus señoras dormían aparte en tagkamash, la cama de soltero
+Kajin duerme profundamente
+En la profundidad del agua viven las sirenas
+Romper la mocahua tumbando al suelo
+Rompió la tinaja con un golpe
+Sin darme cuenta me he chocado
+He desobedecido a mi padre
+Anan hace la invitación para los trabajos compartidos
+Invitación para la fiesta
+Llegaron nuestros invitados
+Convocar, invitar a varias personas para convidarles masato o comida, o para festejar algo, hacer invitación para una fiesta, invitar a una minga
+Mira levantándole la cabeza
+Variedad de maní con cáscara roja
+Colibrí
+Relato de la mitología awajún
+La señorita viene bien pintada con achiote
+Dutikamun, uchijin Amichan Kujanchmajai susauwai numi tsegkennum etegtinme tusa
+Ipamát era persona
+Hace mucho trueno porque las curuhuinses van salir de su nido
+Han invitado para la actividad de Teesh
+Provocaron la lluvia para su enemigo y lo atacaron en su casa
+Disparo, bala disparada; lo que reventó o explosionó
+Ha llenado la canasta con yuca
+He ahuyentado a los sajinos
+A su hijo lo hirió con un golpe en la nariz
+Ha enterrado el plátano isleño
+El señor Aqjis es gringo
+El tronco seco está peligroso
+El remolino me da miedo
+Tener miedo al perro
+Mi sobrino es bien intrépido por eso se ha integrado
+Yo, nunca he tenido miedo
+Hacer trasladar a varios, hacer ausentarse, hacer huir a varios
+El pájaro huyó asustado
+El cangrejo le hacía perder suerte en el mitayo a Iwa
+Dejó la casa vacía
+He paralizado mi trabajo
+Parar de llorar
+Amárrate la pampanilla
+La broma es entre los adultos
+Reparación de una cosa
+Abrir la extensión del ancho de la canoa
+Parecía una mujer bonita
+Vestirse con ropa nueva
+El señor Sugka era bien elegante
+La corona es atuendo del hombre
+Se vistió bien elegante para su matrimonio
+Yo dije de broma
+Bromear a la mujer
+Dicen que el documento está oculto
+Demostración, presentación
+Me toca presentar el trabajo
+Dar ejemplo a los alumnos
+Dar confesión de nuestro problema
+Demostrar lo aprendido
+Mostrar; hacer ver sus fallas a alguien
+La bayuca es comida del boquichico
+Voltear la patarashca
+La escuela no está arreglada
+Íwagbau
+Están hablando de bromas
+Está arreglando algo malogrado
+La iguana está comiendo los huevos
+Imattai akupkam nunisag aentsun yajumtai, íwanchin ainjag achiktagkama waa muunnum waigka megkaekamtai, jii jijumiag kayukag tikima jaak tupikaktatus: wampag, shampiu aidau najanea jiintai múun aidau mainau imátikam jiintai achikag dekas asu asutinakua dekas tikima jatai atiawag akupkam wesa, entsan uma umakua pati jakauwai
+Rel
+Planta silvestre parecida a la papaya
+Nombre de insecto
+Nombre de insecto
+Tipo de demonio que canta como rana
+Mi tío tiene una hija prometida
+Ensuciar la ropa
+Subir las hojas para tejer
+Si hay salud es una buena vida
+Los que dijeron que estaba mal, se equivocaron no está enfermo
+Huy, por qué pescaron tanto
+Bandeja
+El niño ensució la ropa
+Espera
+La abuela está espantando a los animales
+Qué grande es la gallina
+Porque era angosto pasó sumiendo el vientre
+El motelo es inmortal
+Se estornuda porque nos va a dar la gripe
+La mandíbula del sajino está colgada en el cerco
+Me pinché mi pie con la espina
+La anguila no existe en el Marañón
+Cuando llegamos a ser ancianos, nos enfermamos de reumatismo
+El señor Tsamajain al ver que su hijo llegaba de la ciudad lo miró sorprendido y preocupado
+El plato de perro
+Mi hijo está postrado, casi muerto
+Había un muerto
+El agua gotea de la tinaja rota
+El rozo está terminado
+Él es bien enfermizo
+Terminar de sembrar
+La pintura de color púrpura se hace hirviendo
+Ponerse ropa húmeda puede provocar enfermedad
+En nuestra tierra hay muerte
+Me contaron que mi hermano se ha librado de la muerte
+Venado
+Del fémur de venado se elabora la quena de hueso pijun
+El puma muerde por cualquier parte del cuerpo
+Tipo de zarigüeya
+Mi hijo se golpeó en el omóplato
+Después de bañarte te secas con algo
+La iguana anda arrastrándose
+La decoración de la pininga es rayada
+La cerbatana se limpia con la baqueta para pucunear
+Barre la casa
+La escoba es de tamshi
+Alcánzame el jabón para bañarme
+Escucha con atención
+Nuwa tsawanjin wainmamau
+Epidemia, enfermedad
+Ha caido una epidemia
+El veneno es muy peligroso
+Mi hermana se enferma mucho
+, imatnuk aina tiuwai
+Límpiate de lo sucio que estás
+Limpia tu espalda con la mano
+Se ha puesto una ropa muy grande
+Compré con el sencillo
+El canto de la unchala es porque va a llover
+Habla indefinidamente
+Si no está el dueño de la casa no se entra
+Quédate en la casita
+Está construyendo la casa para su suegra
+Me he acercado para conversar con el apu
+Está bien salado el pescado porque le hemos echado mucha sal
+Este es un profesional experto
+Llegaré a mi casa
+El manco cogió a la gallina muy cerca de la casa
+Los wampukus eran morenos
+La aceituna del monte también se madura en la boca
+Mi hermano es moreno
+Huy
+Al bebé báñale con agua tibia
+La picadura del alacrán se trata con el vapor de las hojas de yuca hervida
+Cuando nos pica el alacrán se ahuma con el vapor de las hojas tiernas de la yuca
+La pava del monte se bañó con las canas
+Colibrí, picaflor, en general
+Por visitar a mi pariente me he contagiado de sarampión
+En mi primera mujer tengo algo que tomar
+Hablaba bastante en defensa de su yerno
+Los comuneros han atacado a uno de sus parientes porque le consideraron brujo
+La mujer amarró su cushma con una pretina
+Persona amarrada porque ha robado
+Amarra con bejuco al animal cazado
+Fuego, candela
+jíi anentái
+Pupila
+Párpado
+En mi ojo entró una basura
+Me dió conjuntivitis
+A mi hijo le dió la neumonía
+Kuntin pasugken egketu achiktagkama uwetja jiiyamu
+Salir de cacería al monte
+Salió el detenido
+Jíincham aénts asa nuwa wititsin dujinum anutumakui
+Puede salir de la casa
+Gancho para pelo hecho de las plumas del tucán
+Gancho para pelo hecho de las plumas del guacamayo
+Desarmador
+La yuca asada dura bastante
+Atiza la candela
+Amar a la mujer con aflicción
+Amar con aflicción
+Yuca ennegrecida
+Etsa comía bien el ají
+La gallina se lubrica con su aceite parecido al ají
+Compró dos gallinas
+Entre dos trabajan el rozo
+En la naciente de una quebrada abundan las aves
+En la comunidad de Nujagkim existe una epidemia
+Al momento, al instante
+Se molestó al instante y golpeó a su mujer
+El camino está cubierto de hierbas
+Están haciendo el camino para que los niños puedan llegar a la escuela
+Enseñar la vida de los Awajún
+Los profesores están estudiando
+El hilo de chambira se ha enredado
+Raspar un palo hasta que haga plano
+La gallina aplastó al pollito
+Para icarar a la mujer se dedica al jiukám
+Entre mujeres discuten
+Tuvieron una disputa por la educación de los niños
+Le reñía a su hija
+Está asando el abdomen del majas
+Esta mujer discutía con su madre
+Aquí está el árbol de capirona
+A mi me dá miedo el parto
+Estoy próxima para mi parto
+Ésta persona está comprando gallina
+Esta persona es muy mala
+Él cuando duerme ronca
+Lleva esto nomás
+Con un barroso te contagias por el beso
+Parecido a esto se puede comprar
+La señorita huyó con un hombre casado
+Venga por acá
+Compra tú también igual
+Nombre de picaflor pequeño
+Solo nosotras nos vamos y le traemos
+Compra para nosotros lo que necesitamos
+Mi mujer es delgada
+A mí me sirves la carne deshuesada del armadillo
+La flor de pijuayo es muy rica
+La gallina cacarea
+Hacer gárgaras
+Cuando te enjuagues la boca has gárgaras
+El cuerpo de Shimapuk era delgado
+Las moscas se propagan cuando no se cuida bien las letrinas
+El tamshi se extrae jalando
+El gallinazo defeca la carroña para que el gallinazo blanco pueda comer
+Debes comer la raya con la ropa vieja puesta
+Familia del chotacabras
+Etsa hizo un conjuro para que los comejenes puedan carcomer todas las cosas de Ajaim y llevar su castigo a la faz de la tierra
+Mi yerno es muy tacaño
+Salar pescado
+La urdidera sirve para tejer la cushma
+El remo tiene la forma de mojarra
+El dardo para pucunear el cotomono se introduce un poco ajustado
+Encogiendo las piernas levántate
+Alcánzame el ovillo
+Envolver o amarrar algo con hilo, soga, bejuco
+Corta las hojas, amárralas y luego cárgalas
+La mujer estéril no puede concebir
+El niño es bien legañoso
+La cabeza de boquichico fue cortada para la venta
+Las ruedas o neumáticos están hechas de goma o látex de caucho
+Las piernas de trompetero son largas
+El señor cuando venía del monte, siempre golpeaba la aleta como señal de alerta
+Carga la canasta remendada
+El motelo llegó rodando hasta abajo
+Ahora los calzones de la mujer son bien pegados
+La palta es igual a la carne en su valor nutritivo
+La pantera negra es bien brava
+Mi hermana me invita ir a su chacra
+El sapo come el tizón de leña
+La sachapapa morada asada es bien rica
+Tengo sueño
+El faique abunda en Bagua
+El niño está muy soñoliento hay que darle de tomar tabaco
+El felino mitológico transmite visión
+He soñado a mi padre
+Mi difunto padre me habló en mis sueños
+Pásame la hoja seca de plátano
+Siento cólera
+Aunque sus hijos le molestan no se amarga
+El niño se atoró con el hueso de pescado
+La abuela se mató ahorcándose
+Han matado a varias huanganas
+Envidiar al que aprende
+Odiar a una persona perversa
+Criticar a una persona sin saber
+Tener furor a un enemigo
+Por hacerle bromas por su hermana, lo hizo amargar
+El apu es bien serio, difícil de hablar
+De afuera vino muy molesto
+Durmieron la manada de sajinos
+Fermentar
+La plataniza se ha fermentado
+Casi me olvido del tejido de la cinta
+Me he descuidado de mi hijo por eso se cortó
+Se calló de hablar
+El hombre sin visión nunca defiende a sus parientes
+Vivo descuidadamente
+Me despreocupo de mi hijo cuando lo veo andar
+Un antepasado mató a la anaconda cortándole el corazón con un carrizo
+La sachavaca está masticando las hojas
+No se puede ver, está oscuro
+A los parientes no se les puede mirar con desconfianza
+Le tengo mucha confianza
+Joven mañoso
+El tucancillo en canga es rico
+Mi cabello sucio lo lavé con cocona y quedó limpio
+Fácilmente se puede terminar
+Mi padre es bien noble
+Etsa le dijo a la zarigüeya que matara al chancho y él respondió que lo veía hábil y le era difícil hacerlo
+Fácil, posible de hacer
+Difícil, imposible de hacer
+Se fue discutiendo con su cuñado
+Para terminar el camino hubo mucho esfuerzo
+La gallina salió cacareando
+Para terminar la construcción de la casa se han esforzado mucho
+Para ponerse enema se agacha
+Los loros chocleros descendieron al maizal
+Si uno come la mishkipanga sin yuca se puede estreñir
+El hongo blanco se come en patarashca
+Al niño le dio un puñete en la cabeza
+Los ancestros primero se cubrieron con la llanchama
+De veras
+Me arde la picadura del pucacuro
+Palmera cuya hoja es usada para techar la casa
+En la tierra esponjosa o en la cima existen víboras muy peligrosas
+El plátano aún está delgado
+El grosor de la canoa es muy delgada
+El Marañón tiene islas
+Me he descuidado en hacer mis documentos
+Me he descuidado en terminar de construir mi casa
+Mañana en la noche
+Temprano en la mañana
+Me voy madrugando
+Nombre de rata pequeña, blanca
+No puedo soportar
+Resistente al dolor
+Pedregal
+Pito, silbato hecho de corteza de pitu, o hueso del caparazón del motelo para imitar al añuje
+Raspa un palo para asar la gallina
+Viene al anochecer
+El niño se ahogó con agua
+No cargues peso
+El ala del coleóptero brilla
+Mestizo
+no tienes sed
+El agua está goteando
+Los locreros viven en grupos
+La ropa se coce con la fibra de chambira
+Los niños juegan en la cocha
+Cómprame un cuchillo
+El perro robó la carne de chancho
+Los perros quieren pisar a la hembra
+Caracol de tierra
+El fasaco vive en la cocha
+Ponte colonia
+Olor
+Tiene buen olor
+Pegkeg kugkuaja wajamu
+El joven besó a la chica
+No puedo cuidar al perro
+No está el guardián de la casa
+Murió de paludismo
+Zarigüeya acuática en la que una banda clara en forma de media luna se extiende desde la parte superior de los ojos hacia las orejas
+Variedad de zarigüeya
+Variedad de zarigüeya
+El período en que la zarigüeya se pone negra
+Le duele su pantorrilla
+Traga la pastilla para que no mueras
+El señor come con ganas la carne de chosna
+Vas a ir a pie o en canoa
+Trae palos secos para atizar el fuego
+Cocona con espinas en el tallo, fruta peluda y dulce
+Cocona dulce, delgada y larga
+Cocona ácida
+Cocona más grande, dulce
+Cocona pequeña, dulce
+Cocona más larga, ovalada y dulce
+Cocona con cáscara y tallo negro
+Va a venir mi compadre
+Yus kajeka shimak ashi wajijin yajuak nujinum weuwai
+Variedad de sanango
+Kunám jeen usukia kanusa amain ikankauwai
+Igual a kuncháu pero alrededor de los ojos es azul con negro
+Igual al kuncháu pero de color gris
+Estaban vendiendo kúnchi
+Cuidaba a los animales
+El gusano me ha picado en el brazo
+No mates la gallina de pescuezo pelado
+La mordedura de víbora se cura con cashapona
+Tujash nuna tayatak nuigtush kúpik chígki aina nuna aishjiyai, nii waketak akaska ukugbau asa shinutsuk batsamin aidawai, abautin shinuktin asa
+Herido de bala de escopeta
+Quebrar
+Te va a morder el ichichimi
+Estan buscando kurarína para un enfermo de mordedura de víbora
+Los mestizos pelean por el oro
+Agua turbia
+Tejón, coatí, achuni
+Variedad de coatí o achuni más rojizo y grande siempre esta en pareja  kuín kúshi
+Variedad de coatí o achuní
+Persona que se parece al coatí por sus hábitos solitarios de caza
+Variedad de coatí que es notablamente gregario por sus hábitos de caza
+Variedad de coatí, achuni
+Los niños juntaron cacao silvestre
+El masato está espeso
+Pasa, siéntate en el kutag
+Dile al hilador que te enseñe
+El halcón esta comiendo a la gallina
+Se lesionó por jugar pelota
+La mujer murió por la picadura de araña
+Toma la pastilla con agua hervida
+Timantim, Teesh, Achayap, Tsayag aatus segau ainawai, tagkumawagtatus
+Se cortó
+Bajar una cosa
+Quitar una cosa
+Llevar o acompañar hasta cierto límite en el camino
+Hervir
+La rana se come
+Dice que se suicidó porque amaba a la mujer
+Contentarse, alegrarse, sentirse bien
+Ser suficiente
+Ahí no más
+Está cantando el huancahui porque presiente que alguien va a morir
+En mi pueblo hay luchas
+Pelean borrachos
+Están peleando por una mujer
+Te ensuciaste con tierra
+Te presto mi machete
+Viene el asesino, cuídense
+Va a cambiar al perro más gordo por el gallo
+Río Marañón
+Estoy limpiando las tripas del armadillo
+El camarón cuando se cocina se pone rojo
+Tengo un hijo varón
+Que deshierben la chacra de yuca
+La mojarra es muy pequeña
+Usado para enseñar a apuntar un objeto
+Tiene puesta ropa vieja
+Grillo
+El pájaro come grillo
+Nombre de insecto venenoso parecido a la langosta
+Período en que el oso se pone totalmente negro
+Sancocha manchúp
+El oso es muy grande
+Encías inflamadas
+Está cargando mucha yuca
+Perro cazador
+Matar
+Las larvas de la hormiga máya se come en patarashca
+Todos necesitamos del aire
+Contener la respiración
+No respira bien por la gripe
+No se puede pescar con el barbasco máyu
+Encontraron al desaparecido
+Patá, uchi, nuwa jakamtai megakaébau
+El majás cayó al agua y desapareció
+Ha faltado a su trabajo
+Ha fracasado en sus negocios
+Vino demorando mucho
+Desapareció por fallecimiento
+Heder, apestar
+Apesta el pescado podrido
+Variedad de plátano isleño tupido y blanco
+Variedad de isleño rojo
+Escribo con la mano izquierda
+El árbol de lupuna está grande
+Mijánji edad, sus años
+No se puede echar barbasco porque está pasando mijano
+Me llama a mí
+Se cayó la viga
+Carga al niño
+La palta est á madura
+Siente que no puede subir al cerro
+Los serranos hablan diferente
+Los cacucachus viven en la cocha
+Comamos meto huayo tostado
+múun naám
+Se puede sembrar ashipa en la chacra
+La persona que fue mordida por la víbora está al borde de la muerte
+El niño está tratando de cruzar la cocha
+Empiecen el trabajo
+He ido por primera vez a Lima
+Llegaré al final del baile
+Alistarse, armarse para la guerra; llevar la lanza al combate
+No tires piedras porque puedes golpear al niño
+Lánzame una cocona
+Los pájaros trinan
+El niño juega en la loma
+Cumbre de un cerro
+nája kapántu
+pagkí nája
+Variedad de planta medicinal de tallo suave con espinas como la ortiga, buena para la artritis y el cólico
+Ortiga crespa
+Ortiga de huerta de color rojizo, muy dolorosa
+Le di naranja
+Sigue la huella
+Malestar estomacal
+Quiero aprender a hacer canasta
+Antiguamente el picaflor era persona y se trasformó
+El eco del curaré es muy bueno
+El eco de la voz se escucha al otro lado
+Nos vamos a pescar mojarras
+Tumba el fruto de guaba para comer
+Invítame yuca
+Mapa hidrográfico
+No se bañen en el río porque se pueden ahogar
+El machete valeriana es muy buena para limpiar la maleza
+Prende el lamparín
+Bailar, danzar
+La calabaza huele muy agradable
+Te invito chapo de maduro
+El pájaro está volando
+Le salió la uña
+Acomodar el feto cuando está en mala posición
+Enrrollar a la arcilla para fabricar la cerámica
+Regálame un gajo de plátano
+No sigas echado levántate
+Resucitar
+Cuando sale la luna no se puede cazar
+Luna llena, luna sentada sobre sus patas traseras
+Media luna, luna que brilla
+Luna creciente, la luna trabajando, luna nueva  Nántu Nombre de personaje que fue esposo de chotacabras, ayaimama
+No solo te interesa bailar
+Hoy un bailarín enseñará a los niños
+He cortado el árbol napíkna para leña
+Napújuk Batsatkamu daaji
+Espacio rocoso donde existe salitre y donde viven algunas aves
+Sobrina sírveme algo de beber
+Mi hija ingresó a la universidad
+Amorcito sírvete el masato
+El cielo está nublado, parece que va a llover
+El esposo de mi sobrina es robusto
+La carachama no se puede agarrar con las manos
+Fruta
+Corta el árbol de caimito que no tiene fruto
+Los seguidores de dios están en la iglesia
+Mujer que persigue a un hombre para casarse
+La pelota es redonda
+Está bajando el sol
+Vino solo
+A él o a ella
+Los cachorros ya han abierto sus ojos
+Lávate la cara
+Lava la yuca
+s
+Bandeja, lavadora
+A él le dieron primero
+Mi cuñado fue el primero en matar una huangana
+Mató un olingo
+Estoy abajo
+Tu lápiz está debajo del cuaderno
+No quiere vestirse
+Voy a comprar y también de visita
+Huevo de gallina
+Yampitsa nujínjin ejejai
+Tapemos la rajadura de la canoa
+Escalera
+Tallo, tronco
+Vena
+saapna paámpa variedad de plátano
+Ajanum wegajai paámpan utitasan
+Comprensible, explícito, evidente
+Habla claro
+Estás parado llamando desde un lugar que no se puede ver
+Hago el corral para el pavo
+Mi esposo mató un tapir
+Mi gallina se metió a un grupo de gallinas ajenas y se fue
+Está ordenando lo mezclado
+Estoy enredada tratando de ordenar
+Le pegaron en grupo
+Estamos hablando acerca de Suwa
+La abuela recuerda a su hijo
+Las personas sabias siempre son recordadas
+Tiene fractura en la costilla
+Está sentado cerca al fuego de costado para calentarse
+Mira las estrellas hacia arriba
+Arco iris
+La boa devoró a la persona que estaba pescando en el río
+La panguana está cantando
+Abraza a tu mamá
+El tigre es rayado
+Dibuja haciendo rayas en la hoja
+Me remangué porque estaba cruzando el río
+plátano maduro sancochado y batido hecho masa
+Caldo de carne del monte
+Dejé el plátano maduro que estaba tratando de sancochar
+No me gusta la ropa con rayas
+Vino vestido con ropa a rayas
+Sabes dibujar con rayas
+Voy a comer sancochado de carne
+Ya está, ahora ya no va a gotear
+Utu pajan yuwawai
+Tienes muchas crias de piojos
+Nosotros tomamos agua del encharcado
+Mi chacra es plana
+Estamos aplanando la tierra
+Pela el plátano maduro
+Pecarí con patas delanteras y traseras blancas
+Pecarí con patas delanteras y traseras negras
+Mataron huanganas
+Tuyas tiene enamorada siendo menor de edad
+Está discutiendo sobre el problema
+No se puede hacer chacra en tierras con piedras arenosas
+Me contagié de varicela
+Dale de tomar agua tibia al niño
+Se fue en balsa
+Planta silvestre parecida a la papaya
+Estaba cosechando las frutas haciendo sonar
+Las frutas al caer maduras sonaban
+Ayamtai
+Estudiar
+Dale a tu abuela carne pura
+No tengo plato
+Trae la yuca que está en la canasta
+El nido del pájaro cayó en el camino
+El picaflor está haciendo nido
+Isula que tiene alas
+La isula picó al niño
+Neumonía
+Al niño le dio neumonía
+Cubre la canasta con hojas
+Se durmió echado en la tabla
+Llegaron nuestros parientes
+Siéntate en el piso emponado
+Si no es familiar, no le hables
+La víbora perro es perseguidora
+Se fue persiguiendo al tapir
+Perdió el brazalete
+El gallo está montando a la gallina
+Deja encima de la tabla
+Rápidamente se embarazó otra vez
+Han robado el pate de mi abuela
+Ganso
+No vendes zapote
+El travesaño se quebró
+No comas la tusa del maíz
+He visto una estrella fugaz
+Parate de costado para no golpearte
+Tengo miedo del relámpago
+Sube bien pegado
+Cómprame vestido, no tengo
+Se está meciendo en la hamaca
+Las mujeres nunca se sentaron en la cama de los varones
+Voy a arreglar la cama de los chicos
+El perro nadó en el río y al sacudirse está echando agua
+No rocíes el agua, me vas a mojar
+Besetnum aishmagkun wajemeaun saintin pegagme
+Agitar un frasco de medicina
+Agitar bien la medicina para darle de tomar al niño
+Mecer o sacudir la hamaca, menear
+Mover
+El Señor Sanchum preparó resina de caraña
+El señor Shajian embadurnó a su nueva cerbatana
+El charichuelo ha madurado bien
+En el tambo hubo ahumaderos de animales cazados
+Vendió bastante carne ahumada
+Pescó bastante pescado y eso estaba por ahumar
+El niño malo discute con su padre
+La canoa estaba mal hecha
+La afaninga le envolvió la pierna al niño
+El ratón roe la yuca
+Toca la antara
+Los loros comen sentados
+Colocar gente en fila, poner en fila a varios
+Siéntense en la mesa para que coman
+Mujer, envuelve al bebé para que no le dé gripe
+Ichisa tiene pereza por eso está envuelta en la sábana
+Desviar hacia otro lado
+Enrolla el tamshi y déjalo
+Lo llamé y se volteó rápidamente
+Estoy matizando el tejido
+No mates a la cría del piampia
+Tuyas toca flauta
+Invítame un poco de yuca
+El perro tiene garrapatas
+Prepara el cargador para el bebé
+Está haciendo la quena
+Tengo muchos lunares
+Llenar la canoa
+Cuando subo al cerro me da cansancio
+El niño se cae porque está débil
+Lo hice cansar haciéndole andar mucho
+Debilitarse
+Me cansé de tanto trabajar
+Llenarse la leche en la teta de la mujer
+Siéntate en la parte plana
+El niño se cayó boca abajo
+Ten cuidado con la pininga para que no se rompa
+Su cabello es bien liso
+Pelaron la topa y está resbaladiza
+Lijar
+He sembrado plátano guineo en mi chacra
+Se escaparon porque los querían matar
+árbol que produce variedad de pan de árbol
+shíig
+Hace mucho que el Marañón desembalsó
+Actualmente ya no utilizan el piyú
+Mi hija se ahogó en el pongo cuando se volteó la canoa
+Se golpeó con su hermano
+Lucía está lavando ropa blanca
+Está cuidando al bebé por eso no puede venir
+Golpeé fuerte al perro porque robaba
+La ropa medio blanca está vieja
+Despoblado, yermo, hostil
+Esta casa está deshabitada hace mucho tiempo
+Estaré en mi casa
+Hogar, establecimiento
+Llora porque le sale pus de la herida
+El fruto maduro de la guayaba de monte, está suave
+Siembra la yuca removiendo la tierra
+Viejo jorobado
+Me mordió un cangrejo
+Mi esposa sabe limpiar los microbios púsaji
+No parpadees, te voy a echar remedio
+La cushma del niño
+La ropa te queda muy apretada
+Dijo que no pescó carachama negra
+Yuca blanca
+Invítame un pedazo de camote
+Te dejé un pedazo de caguara
+Por qué estás desarreglado
+Pelando plátano me manché con su resina
+Hay flores rosadas
+Se cortó con el machete y sangró mucho
+De noche atrapamos hualo
+Mataron al zúngaro con el arpón
+Está trabajando en la chacra con machete mediano
+Se hizo pedacitos
+Han asesinado y hay mucha preocupación
+Las personas adultas no temen
+Me corté con saák
+La purma está libre de maleza
+La lluvia hace ruido
+Dame el zumo del masato
+El agua de la quebrada está muy cristalina
+Cáscara de seda
+Culata de la escopeta
+Tumba el aguaje tierno
+No patees a tu hermano
+Me voy a pasear con mi cuñado
+El niño está seco después de bañarse en la cocha
+No tomes agua de lluvia
+Escuchas que la lluvia está sonando
+Por qué comes sin sal
+Fue a traer una canoa y se desapareció
+No se puede cazar en la estación de sakamtín
+Pasar la comida
+El suber de la topa no es pesado
+La carne de monte fresca es muy rica en caldo
+La hoja de limón es verde
+Variedad de sampi
+Árbol cuyo fruto es parecido al de la guabilla
+Muy miedoso
+Es valiente por eso anda de noche
+No siente temor
+Es valiente, por eso conversa con su enemigo
+Ahora no tengas temor
+Viene el valiente
+El tamshi está colgando
+sal no refinada recogida del río en forma de granos
+Ata con saukaap
+Jairo se besa con su esposa
+Lava con mucha espuma
+Fueron a la quebrada
+Sacaron sal espumosa
+Mi perro es moteado
+El perro está tragando su saliva
+Babea mientras duerme
+El bebé está babeando mucho
+Está suelto
+Ataste flojo
+Está haciendo lanza
+Gracias, he comido bien
+Poro
+Esconde el hilador
+Tiene vicio
+Dale de comer plátano de seda asada a los niños
+Está pidiendo dinero prestado
+He venido a pedirle medicina
+Está en un lugar accidentado
+Viene a echar brea a la canoa
+Actualmente es muy difícil sembrar vainilla
+Le pegó porque es muy fuerte
+Mi hijo es débil
+Shawag necesita correa
+La mujer se pone la cinta
+El niño tiene oxiuros
+Fue a traer hojas para tapar
+Tapa la tinaja para que no escurra
+La flor floreció al medio día
+La herida está cicatrizando
+Niño atrevido
+Postergo el trabajo en la chacra
+El gallito de las rocas es muy bonito
+El perro está con pulgas
+No tomes muy frio para que no te de gripe
+Mi suegra es bien mezquina
+Iyashnum neje katsujam jinín tutai
+No soy mezquino
+He matado a la gallina que quería conservar
+La escopeta es prohibida, no la toques
+Está molesto porque está impedido de casarse
+Le impedí comer
+Vendí jabón
+Voy a la tienda
+Mi abuelo está haciendo canasta
+Augmatbaunum aishmag nunu dutikata tama ayu tusa, nunak umiau
+” Eso le decían para que vaya a pescar y él, se sentaba a mirar lo que pescaban
+No le des de tomar agua caliente al bebé
+Mandé a mi hijo a la tienda
+El camaleón cambia de color
+Cuando estaba en el río, me dio calambre
+Te gusta el sombrero
+Hija, no uses ropa corta para que no se te vea muy descubierta
+La mujer está cortando su ropa porque es muy larga
+Cuando llegue el fin del mundo, se temblará por el temor
+Le haces temblar de miedo
+Tiemblo de frío
+Mi hijo es soldado
+Mi yuca está aguachenta, caulla
+Mi hermano era barbudo
+chúnchu
+El maíz morado es de color oscuro
+En la quebrada Pumpuná hay muchas carachamas
+No vayas solo al monte porque Shaám te puede matar
+Sháam entsanum kuashat ayaawai
+El anciano vino con aretes
+Shawit mató muchas ranas en su cocha
+Ankuash mató un loro que comía shankuína
+Juan es muy blanco, cuando se saca la ropa
+El jefe quería hablar, pero no lo hizo debido al ruido
+Los profesores están en reunión y hacen bulla para acordar sobre sus derechos
+La rata es fea
+La lagartija corre fuerte
+No se encuentra fácilmente gallinazos
+Me picó la avispa negra
+Tu piel es blanca
+Asa el camote para comer
+Teje con chaquira
+No quieres comer guayaba
+No te manches con la resina de shawín
+El tigre negro mató a una persona
+shíig anét
+Complacer, dar gusto
+Sincero, cumplidor
+Persona fiel
+Acción de cumplir bien las órdenes y leyes
+Está feliz porque su hijo terminó sus estudios
+Me siento indispuesto porque tuve fiebre
+Me gusta ese chico guapo
+Tengo mucha mucosidad
+Límpiate la mucosidad rápido
+Niño con ameba
+Le curó al que tenía amebas
+El pollo encrespado se perdió
+Antiguamente vendían la shiringa
+Los niños crespos son lindos
+La vejiga de los animales se come
+Chimpa está vendiendo carachama ahumada en hoja
+Ahuma rápido la carne para comer cuando se cocine
+Está enfermo, tiene infección urinaria
+Anda al lugar donde se orina
+Encresta
+Sirve masato para invitar
+Le orinó porque no lo vió
+Perdí el cucharón
+No mató porque no cumplió con las normas de caza y pesca o por estar su mujer embarazada
+Tengo palmeras de sinamillo en mi chacra
+Cura al niño con el arbolito
+Escuchas el rugido del tigre
+Desperté porque me estabas llamando
+No recuerdo el canto del pihuicho
+El bebé gatea
+Aplasté para que dé a luz rápido
+La garza se alimenta de pescado
+Táamtam canta
+No rompas la tabla
+Mi hermana va a llegar de otra ciudad
+Es el que está vestido multicolor
+Tu enamorado es calvo
+Caña brava delgada y muy dura
+Corta caña brava
+A la persona muerta se le hinchó el estómago
+Acerca tu espalda al fuego
+Estoy de espalda al fuego para calentarme
+Bota la cáscara de yuca a la cocha
+Crío muchos animales
+Tengo pocos animales domésticos
+Se metió en el hueco cavado
+No agarres luciérnagas
+Calvo, pelado
+El cerro se derrumbó
+He comido mucho picante
+Se cayó de rodillas
+Siento grasa en mi boca
+Párate bien fuerte
+No te paras firme
+Mi amigo vive en la prosperidad
+Está bien parado
+Mi hermano vino a ayudarme
+Está trabajando en su chacra
+Chacra despejada
+Dicen que Samekash le hace la chacra a Pujupat
+La lagartija le picó a la gallina
+Estoy haciendo la chacra de mi hermano
+El bebé tiene la carne
+Ahora puedes trabajar
+El huérfano robó la sopa de boquichico
+Vino una persona extraña de la sierra
+Mi hijo es honrado
+Mi cuñado está acostado en la cama en silencio
+A mi cuñado le enviaremos un venado completo
+Lleva palmiche ligero por el camino
+El pollo pesa poco porque tiene lombrices
+El joven anda de noche guiándose por el tacto
+Te doy el pate usado
+El niño est á pateando al sapo
+La gallina se busca piojos estando en el palo
+És ta no es tu hermana, es extraña
+Mañana habrá trabajo general
+Por ahora estoy sin trabajo
+El perro ladra a lo lejos
+La cinta está floja
+Es trabajador pero no avanza porque está enfermo
+La gallina que ha empollado murió
+Reventaron los huevos de la gallina
+El takúmkit canta
+Estoy elevada
+El pájaro se eleva, despega
+Alza al niño
+Comamos la chonta de pijuayo
+Haz al instante lo que te digo
+El agua de pijuayo está aceitosa
+Aceita bien
+Es muy fino
+No tienes ceja
+No te pares en el borde del barranco
+El bebé duerme en la hamaca
+No tumbes el cerco
+Come pan
+Es muy grande el hueco
+No hagas tan grande el hueco
+Estoy viendo que hacen la curva de la tinaja
+El estómago de los animales es muy pequeño
+Tapa la tinaja
+Agarrar violentamente
+La señorita corta en la tabla
+Mi tío hizo corona con las plumas de la pava
+En el árbol, hace hueco el carpintero
+La mujer junta frutos de taúch
+Llega la cosecha de sachapapa
+El pájaro carpintero hace agujero en el palo
+Guía bien la canoa
+Corona grande
+Tsetsen está removiendo
+La huevera del boquichico es muy rica
+Infla bien la pelota
+Infla bien
+Está sin respirar
+Saca el camote
+Tiene comezón en la cabeza
+Tiene mucha comezón en sus axilas
+El masato está bien rico, en proceso de fermentar
+La planta se desprendió y cayó
+Ayúdame a pelar la yuca
+Agáchate rápido
+La gallina incubadora murió
+La gallina está incubando
+Perdí mi peine
+El objeto redondo está rodando
+Da la vuelta y pasa
+El pato está en el corral
+Es algo circular
+Haz círculos alrededor
+Canoa sumergida
+La gallina mató a su cria aplastándola
+yúmi tepét Época de lluvia
+Entraste en mi terreno
+Casa dividida
+Patio limpio
+Teté bukujatin bujajinia niime yampin
+Me inqué con imperdible
+El salto del grillo
+El loro es bonito
+ama tijag
+Viene mi nieto
+Me duele el estómago
+Hablas muy bajito
+Otra persona
+No agarres lo ajeno
+Llegue cerca de la casa
+Arrodillate
+Golpéale fuerte con la rodilla
+Arrodíllate para que des a luz rápido
+Tiene poca fruta
+Ticuna, pueblo indígena de la Selva peruana
+Hay muchos árboles Timuna
+El jefe repartió cosas
+No hagas sonar el metal, despertarás al bebé
+Yuca delgada
+Limpia la tripa de animal
+Voy a dar de comer trigo a las gallinas
+No cojas el tingotero porque te va a picar
+Abre el paquete para ver que contiene
+La picadura de alacrán puede ser mortal
+Mi papá come shiripira
+Corta la punta del árbol
+Quédense quietos
+Mi hija es calmada
+Bota con un palillo el gusano
+A dónde va mi mamá
+El tuátua come grillo
+El tuchíra corre en la playa
+Discutimos mucho
+Mi tío es muy malvado
+Mi padre no es malvado
+Mi hijo está con los ojos hundidos
+Mi hermano vende zúngaro
+Dame las plumas blancas del tucán para hacer corona
+Me mordí la comisura de la boca
+Voy al fin del mundo
+Mi papá hace tablilla para atar perro
+La papaya es una fruta ovalada
+Aprende a hacer tablilla para atar perro
+Toma chapo de plátano maduro
+Haz chapo de plátano maduro
+Entonces,
+Pero yo me voy
+Mi hijo no se detiene por nada
+Me detuve
+Está tratando de resolver lo irresoluto
+Trabaja fácilmente
+No puedo hacer una pininga
+Dame túju para sembrar
+Estás comiendo el cartílago de gallina
+Una casa construida con techo de palmiche dura mucho tiempo
+Anuda lo que se ha roto
+Laringe fuerte
+Este suelo es suave
+Las plantas de la chacra ya han madurado
+Sancocha la huitina roja para comer
+El niño juega con el mantis
+La cucaracha come maduro
+La vida no es para siempre
+Estable
+Aquí viviré para siempre
+Mi hijo es diestro en la caza con pucuna
+Mi hijo patea la pelota
+Mi hermano se ha tropezado con la piedra
+Es muy peligroso donde se cruzan los ríos
+Me quedaré en casa haciendo tukup
+Choque con el perro
+Acertar, cazar con pucuna o cerbatana
+No se le puede decir nada
+Mi papá viajará el domingo a Nieva
+Fue a tomar ayahuasca en la catarata
+Se rompió la pierna y quedó con defecto físico
+Se ha enviciado de jugar con la pelota
+Ha cutipado al niño
+Ha cutipado a su hija
+Hirió con veneno a la perdiz y la desvaneció
+Está débil
+Discutieron mucho
+La brujería es peligrosa
+El tunchim come cucaracha
+No llegué pronto porque había muchas curvas
+Estoy en la curva
+Lo dejé en el recodo del río
+La serpiente está serpenteando
+Tumba el árbol torcido
+Está en el recodo del río
+Ya ví el árbol que está torcido
+Palo torcido
+No quiero ociosos
+No te pares torcido
+Perdiste mi carcaj
+Le pegaron y está morado
+Tiende el mosquitero
+Manguaré
+No me rompas la batea
+Le hizo un moretón
+Asa el plátano más maduro
+Le duele la espalda
+Voltéale de espalda
+Ponle de espalda a tu hijo
+Báñalo de espalda
+Siempre alejado
+Hacer que se aleje de su esposa
+Hay un perro peligroso, aléjate
+Mi esposo se alejó de mí
+Vive alejado
+Dejó escapar al oso
+Está golpeando una víbora con machete sin filo
+La canasta tiene agujeros
+Hace iluminar la casa
+Me despejé la mente
+Su rayo alumbra
+El plátano maduro está bueno para hacer chapo
+Se sanó
+Mi nieto es generoso
+Lo perdoné
+Viene quien se calma rápidamente
+Chimpa viene tranquilizado
+La espina de pijuayo está espinosa
+Dedo del pie
+Dedo de la mano
+Hay muchas cucarachas chicas
+Árbol sin hojas
+Patarashca de pececillo
+El ahumado de pescado está tostado
+La carachama se tostó
+He criado al niño
+Cocina molleja de gallina
+El oso vive en este cerro enpuntado
+El chancho está creciendo
+Niño tierno
+La lluvia salpica
+Se ensució con el barro
+Viven entre los barros
+Se le hinchó la encía
+Come papaya madura
+Estás colorado
+La piña está madura como para comer
+Le hizo regresar a su compañero
+Le da dinero a su enamorada
+La mujer tiene enamorado
+Mi amiga vendrá hoy
+El pájaro mentiroso vuela en lo alto
+Mujer engañada o abandonada
+No mientas
+El niño no miente
+Su esposo le mintió para irse con otra
+A la mujer siempre la engañan
+Haz un pate
+Cortaron la planta que estaba germinando
+El toé está germinando
+La planta cortada ya no puede brotar
+Los cultivos están germinando muy bien
+No saques el ojo de la planta de yuca
+Mi hermana mató un mono que estiraba la cabeza para mirar
+Mi hermano atiende bien a su suegra
+Mi hermano tuvo suegra del rio Santiago
+Invítame masato cernido
+Tengo un adorno hecho de huesos de huacharo
+Regar
+Riega la semilla de huaca
+Empolvorea con insecticida la isula
+Anzueleando pesquemos el mijano
+El pico del tucán es encorvada
+La reunión se realizará de día
+Mi padre llegará pasado mañana
+Amanecí cuidando al enfermo
+Nui tsawakun wetatjai yaaktanum
+Kashi aajaku tsawai wegamu
+El gallo canta al amanecer
+Me duele el intestino delgado
+La víbora venenosa mordió al perro
+He cazado un mono fraile
+Hacer lanzar con fuerza un líquido
+Está lanzando agua para mojar
+Prepara un collar y póntelo
+Mató venado con veneno
+Dame el gancho
+Se desvió hacia el monte
+Muy delgadito, muy finito, muy angostito
+La guayaba crece delgada
+Salta alto
+Haz saltar al perro
+Ven de un salto
+Es ágil y por eso no se cansa
+Estoy escribiendo en un cuaderno rayado
+Le operaron porque estaba enfermo
+Écha te en la estera
+Está haciendo estera
+Termina de trazar
+Tienes polvo en el ojo
+Ahora hace mucho frío
+Pestañea mucho
+El niño es inseparable
+El bebé destetado tiene hambre
+Se acostumbró y no quiere separarse
+Troza el bejuco
+Tiene mucha hambre
+Su axila apesta
+Lleva en tu hombro
+Viene la oleada
+La oleada lo mojó
+El perro está en el rincón
+Toma hierba
+Los peces murieron río abajo
+Nosotros vamos río abajo
+Planta silvestre cuya hoja es de olor desagradable
+El árbol est á inclinado
+Agáchate rápido
+Come guayaba verde
+Me corté con el machete
+Dale un pedazo
+Empuja con palo y tumba la fruta
+Atiza más
+Tiene asco del suri
+Matemos shitari
+Vino el curandero
+Come perdiz
+Enfermedad curable
+Se puede curar
+Esa piedra es movible
+El niño llora
+Le dejó su esposo porque la mujer es estéril
+Dicen que no puede tener hijos
+La mujer dio a luz un varoncito
+Su esposo la ayudó a dar a luz
+Le pega a su entenado
+Sobrino, ven, ayúdame
+Cuida al bebé
+Ropa reducida, achicada
+Reduce el borde de la canasta
+Mojaste a tu hermana
+No te has puesto la ropa mojada
+Desinfla la pelota
+No comas crudo
+Se ha enmontado su chacra
+El cangrejo come pececillo
+El kiwi chupó la sangre de una persona
+La piedra se desprendió y cayó
+Dónde está la piedra desprendida
+No tienes muchas pestañas
+Si hay algún problema nos podemos informar
+Puerta abierta
+Lo denuncié con el jefe porque robó
+La pluma del pihuicho cayó en el masato
+La sachapapa se come sancochada
+Acabaron mi algodón
+Préstame tu toalla
+Si te bañaste, sécate
+Seca al niño
+La cola del mono se come
+Perro sin rabo
+He comido poco
+La persona tose
+Da miedo cuando tose
+Me antoja comer aceituna del monte
+Yo soy muy pobre
+Se derramó el agua
+Sírvete la sopa
+Me mojé con agua caliente
+Lo mojó con agua
+Encontré el dinero escondido
+Muslo trasero
+Le duele el muslo trasero
+No deja a su mujer
+Se saca la prenda para bañarse
+Saca el palo que está plantado
+Hirvió el agua hasta sacar su esencia
+Está parado detrás del pavo
+Me voy al cementerio
+Fueron al cementerio
+La casa está deshabitada
+Se enfermó en forma incurable, parece que va a morir
+Derramaste grasa en el agua
+Viene Atrás
+Se va a ver la sepultura
+Se va a hacer mermar la quebrada
+Llevo para tomar
+Viene el fiel
+Llegaré cuando esté terminado
+Cumple con la tarea que se le deja
+Está listo
+Estoy listo para irme
+Va a estar en la choza
+Pelota inflada
+Está enfermo y se pone enema
+Le salen recién las plumas
+Entonces que sea así
+No escuchan que llamo
+Escribo con la derecha
+Viene una manada de animales
+Jinta wegkajam wagamainchau
+Camino ancho
+Entonces que sea así
+Está llamando a gritos para que lo ayuden
+Le pedí ayuda para ella
+Llamo a mi hermana pero no me contesta
+Aprendes rápido
+Conozco la ciudad
+Me acostumbré en otro lugar
+Haz aprender al perro
+He acostumbrado al pihuicho
+Traélo con engaños
+El gato está bien gordito
+Machete filudo
+Voy a acompañar al monte
+Me picó la avispa
+Dame tabaco fresco
+Toma chapo de plátano bellaco
+No pises el huevo reventado
+Salió lo que estaba enterrado
+Está ungido
+Traga su saliva
+No escupas
+Píntate la cara
+Me dio calambre en la pierna
+El niño derramó la pintura natural que preparé
+Niño aichatero
+Tengo ganas de comer carne
+Sube al árbol
+Wajuk weme
+Dale de comer al cuy
+Se acabó la leña amontada
+He amontonado plátano
+Es difícil estudiar
+Es muy capaz
+Qué se podría hacer para que esté quieto
+Hay una canoa impedida de pasar por la palizada
+Si no estás seguro no vengas
+Pasen a la casa
+Pasen a la casa de Yunin
+Me pica el isango
+Me limpié el estómago tomando sal
+Haz librar la suciedad
+Bótale la ropa vieja
+Botar los salvados del arroz
+Bota todos los zapatos viejos
+Come el calentado
+Calienta el agua
+Aprende otra lengua
+Me contagié de gripe
+Prepara la candela
+No se sabe cuando habrá temblor
+Prepárame una cerbatana
+Escóndete de tu hermana
+Rompió la calabaza
+No mató al ave
+Has traído demás
+Le aumenté más fruta
+Se fue tomando masato
+Trae la bebida
+Lo asustó cuando estaba solo
+Me asusté al ver al muerto
+Atemorizar o asustar a otro
+No me asustes
+Ayudar a una persona a salir de un problema, salvarse
+Salvarse de morir
+El pollo desplumado desapareció
+Palma de la mano
+úchi uwég Meñique, dedo pequeño
+Muñeca
+En el desierto no hay árboles
+Deshierba la chacra
+Ven rápido
+El bebé bosteza mucho seguramente quiere dormir
+Estoy buscando hongos pero no hay
+El maracana habla bien
+Juguemos con la flor de caña brava
+Sembremos maní en la época de la flor de caña brava
+Mi abuelo mató una perdiz
+Es muy orgulloso
+Le quería sobrepasar en la discusión
+Por qué anda preocupada
+Estoy sembrando yuca con el tacarpo
+Mueve la candela para prender
+El perro mueve la cola
+Mover el tizón para avivar la luz en la noche
+Tienes visión
+El perro ladra en vano, no muerde
+Encontrar, hallar, descubrir
+Encontré mis chaquiras
+Aquí vive un sabio
+Hace mucho que no lo veo
+Si es desconocido no le hables
+Lo llevó el remolino
+Trajimos a un conocedor de buena leña
+Por en vano he perdido tiempo
+Los jefes son conocidos
+Ese es un desgraciado
+El ciego es bueno
+Lo que escondiste está visible
+Tomando ayahuasca adivina
+No tengas miedo, es conocido
+Toma huayusa temprano para botar el mal aliento y tener buena conversación sin equivocarse
+Antiguo jefe
+Tu hijo es mentiroso
+waít anénkagtamu
+Pasar, entrar; entrar a la casa, entrar al hueco
+Se cayó la puerta
+La mujer tiene inflamación
+Mi hermana no miente
+No se debe mentir
+Sufrimiento por brujería
+Lo están molestando
+Numi wajajunum jegau tuajame
+Base del árbol
+Llegué a donde estaba parado él
+Mayán se pone de pie
+Sorprenderse
+Estaba esperando la canoa en la parada
+Persona parada
+Mira la base del árbol
+En esa casa vive una viuda
+Cosa, objeto
+Ven pronto
+He traído mono negro
+No tiene cosas
+Recoje las cosas, hay creciente
+Sé un héroe
+No agarres el chinche
+Tipo de macambo de tamaño mediano
+Tipo de macambo de tamaño pequeño
+Tipo de macambo de tamaño grande
+La sombra asusta a la gente
+En la noche penan en mi casa
+Trepó su esposo al árbol
+Es abismo, camina con cuidado te puedes caer
+Me duele el estómago
+Descontento
+Triste, afligido
+Serio
+Ponerse triste, ponerse descontento
+Bailas maravilloso
+La chaquira es muy deseada
+La lagartija no se come
+Le hizo gustar la naranja
+Están de regreso
+Vende bolsas de chambira
+Mi abuelo está haciendo un bolso
+La mariposa es linda
+Vértigo
+Tenía muchos mareos
+Hacer flotar
+Dale la canasta quitándole el peso
+Wampurushak ajanum wekaewai
+En la estación de Huimba se siembra maní
+Hay larvas en la cocha
+Ikamia pasun wanipjai betek shinin
+yawá wánip Ikamia kuntin yukagtin, ikamyawajai betekmamtin, wanipjai betek shinin
+Quedó al descubierto su amorío
+Eres muy popular
+Le di Barbo
+Me disloqué el tobillo
+Cocina maparate
+Estás sucio
+La mantona come huevos
+Puerco de hocico muy corto
+El gato está comiendo conejo
+Tiene cara redonda
+Construí mi casa con armayari
+Fue a tejer cumbas
+Quiero jugar
+Muy juguetón
+No tiene juguetes
+Juega bien con el perro
+Est ás desperdiciando la comida
+Mata al maquisapa
+Washíbau come cangrejos
+En el garlito no había nada
+No te ensucies
+Está haciendo escalera
+Tu hijo es flaco
+Quiero adelgazar
+Adelgazado, enflaquecido
+Vino bien enflaquecido
+Vendré pronto
+Mi hermano come con paciencia los pescados
+No tengo paciencia
+Habla con paciencia
+Mujer coqueta
+Enloquecer
+Se fue apurado
+Mató un paucar
+El niño es travieso
+El gordo está llorando
+El vampiro después que muerde chupa la sangre
+El brujo me ha hecho daño
+Nombre de una comunidad
+Las pepas se usan para hacer collar
+El Wayámpainim está cargado de frutos
+En la entrada está el perro
+La afaninga corre rápido
+El guía de los gallinazos
+Se me acabó la sal
+El niño se está meciendo
+El niño está jugando ron ron
+Weejin se va a la chacra
+Invítame curuhuinse
+Ayer hemos comido achuni
+Tengo mareo
+Cayó por mareación
+Los antepasados ya no existen
+Cuida la canga
+El animal engordó mucho
+Ponte tu truza
+Se molesta en el viaje
+Ponle ropa
+El ancho del Marañón es extenso
+Está chamuscando al armadillo
+La boa se extiende
+Dejé el luegar donde estaba parado
+Vete
+No puede caminar
+Vienes de vagar
+Vengo de buscar dinero
+Vengo de andar
+Viene el mitayero
+Voltea la carne para que se cocine
+Lleva masato en la calabaza
+Si tienes boca habla
+Corral de gallina
+Construye el gallinero para las gallinas
+Palo firme
+Soy yo
+Viene el adinerado
+En la cocha hay bastante tuchira
+Ardilla de color negro más grandecito
+Tipo de ardilla muy pequeña
+Ayer maté una ardilla
+Atrapó una mariposa nocturna
+Remueve la comida para que no se queme
+Wichíkuat le enseñó las canciones amorosas a las personas
+Compró un vestido azul
+Los niños juegan con el wiíka
+Wijisám está en la orilla de la quebrada
+El fierro es brillante
+Lustra tus zapatos
+La calamina brilla con el sol
+Hay muchas plantas de platanillo en el camino
+Se oscurece el cielo porque el wínchunchu anuncia la lluvia
+El niño se cortó profundamente
+El señor se baña desnudo
+Shaag vive sin hijos porque es estéril
+El pájaro wisusu anda en bandada
+Me muerde el ichichimi
+Se cortó un tendón
+Los caimitos están maduros
+Mi hijo es un buen profesional
+Ahora aprendo
+En la montaña crece este árbol
+Tu cuerpo está amarillento
+El planeta Venus brilla muy fuerte
+En mi patio tengo muchas flores
+El enfermo está amarillento
+Me dio hepatitis y casi me muero
+Maté al yangunduro que estaba cerca de la chacra
+Averigüemos por quién va a llegar
+Casa pequeña
+Mi chacra no es pequeña
+Qué grande es mi casa
+He contribuido en el trabajo
+Cuando comía le hice provocar
+Ahora no hay cooperación
+Desde ahora, que haya apoyo
+Pon el asa de la canasta con la corteza de yais
+Yo voy por otro lado
+Yo vendo la fibra de chambira
+Voy a visitar a mi enamorado
+Vierte el masato
+Es muy tosco
+La carne está muy rica
+Qué lindo su cabello
+Toma ayahuasca
+Recoge las yucas
+Está mudándose
+Cambié de dirección
+Está trensando la chambira
+No le quites sus cosas
+Me duele el hombro
+Píntate con achiote
+Frótale en su pecho
+Quién habrá robado
+El coto mono juega
+Llegué recién
+Hoy me voy a la chacra
+Vete ahora mismo
+Recientemente hicieron el camino
+Ropa nueva
+He teñido mi ropa con las hojas de yamakái
+Bautizaron al niño
+Canta la paloma
+Yo no tengo achiote
+Tengo un cuaderno morado
+Hazle cargar piedra
+Está matando un lagarto
+Échate de costado
+La chispa del fuego quemó su ropa
+Aquí hay shinguitos
+Dicen que murió el niño activo
+Le riñen porque es inactivo
+Las palometas comen las frutas de requia cuando caen al río
+El perro comió la patarashka de rana
+Me robaron la semilla de sachapapa
+El perro robó la paloma que se estaba asando
+Le cambiaron la tinaja de mi abuela
+Haz que cambie los malos pensamientos que tiene
+Me está dando hambre
+No cambies mis cosas
+El niño llora de hambre
+Si el caldo de boquichico está salado, no me des
+El pájaro está abriendo las alas
+Se lastimó la cara con espina
+Muchos pájaros están comiendo los frutos de la planta trepadora
+Siempre he querido conocer al tucán
+Tengo heridas en la nuca
+Muéstrame la nuca para buscarte isango
+Mi esposo murió por la mordedura del cascabel
+Voy con mi hermano a jugar a la pelota
+Ayer por la tarde
+Quise matar al ave que estaba cantando pero no lo pude ubicar y lo dejé
+Juguemos con las flores de la planta
+Antiguamente la luna era persona
+Yawa ayujata
+Está descansando porque se cansó trabajando en la chacra
+No se harta de comer mucho aguaje
+No me cansa comer suri
+Me cansé de comer yuca
+La rata come los pollitos
+A pesar que le damos apoyo habla mal
+Estamos comiendo la chonta de wasai
+El tigre no se come
+Fue a pintarse la cara con yugkiínia
+La reina del curuhuinse es muy rica
+Variedad de sajino más pequeño que tiene pelaje moteado
+Mataron muchas punchanas
+Guanábana, tipo de árbol
+El armadillo come la fruta de guanábana del monte
+Tiene paludismo
+Dale de comer la yema del huevo al pihuicho para que tenga bonito plumaje
+El perro comió la patarashca
+Aprende a hacer patarashka
+Barre y bota la ceniza
+Construyó su casa con palmera
+El tapir que comía el fruto de yujach está corriendo
+En mi chacra tengo mucha fruta
+Nombre de una quebrada
+Los pollos andan juntos
+Los cuyes se multiplicaron
+Los niños son callejeros
+Trae yuca de la chacra
+Dale comida al niño
+El tigre es carnívoro
+Mi abuela está pintando la tinaja con la resina
+Corta la yanabara
+Maté al pájaro con cerbatana
+El niño no sabe nadar
+No te empolves, te vas a ensuciar
+Niño nadador
+Después de comer, enjuágate la boca
+Fue a comprar cepillo de dientes
+La vasija para tomar huayusa se guarda con cuidado
+El huanchaco es difícil de encontrar
+Saca las raíces de la ortiga
+Nadó para pescar zúngaro
+El niño empolvó a su hermana con ceniza
+No hay algo que se pueda comer
+Dame agua para tomar
+Viene la lluvia
+He sembrado calabaza
+Chinche de agua, larva de ditisco
+El chinche de agua no se come
+Depósito para sacar agua
+El señor bendijo al joven
+El señor está maldiciendo
+Yo saco agua del pozo
+El limón no tiene jugo
+Invitame caldo de boquichico
+El zapote es muy dulce
+El tuétano del pollo es muy rico
+Tumba las palmeras que hay en la chacra
+Trajimos choclo
+En época de lluvia no se puede hacer chacra
+No derrumbes la planta de plátano
+Fueron varias personas a ver a los gringos que llegaron
+No tengo limón
+Está arrugado por la vejez
+Se le acerca porque tiene dinero
+Se acercan a la casa para entrar en la noche
+Sancochar yuca es fácil
+La tarea es facilita
+La ardilla es indomable
+El gato se alejó de la casa
+El guacamayo vuela fuerte
+Tiene un collar de lágrimas de rosario
+El bólido alumbra mucho
+Tu papá trajo comida
+El curuhuinse es comestible
+Se molesta a la hora de comer
+Se acerca la época de sequía
+Fue a ver la sepultura
+Aquí nunca llueve
+Me picó la isula
+Vendo patarashca de bagre
+Aplastarse por sí solo
+Se aplastó tumbando el árbol
+Namak abauji pakan utuamu
+El árbol al caer aplastó la casa
+El árbol tapó el camino
+Se bucea en la cocha
+¡Hola como estas¡
+Buenos Días
+Buenos Día
+Buenas Tardes
+Buenas Noches
+Ya es tarde
+Muy temprano
+Mañana vengo
+En la tarde te visito
+Donde vives
+¿Es lejos tu casa?
+Con quien has venido
+¿Cómo has llegado?
+Está lloviendo
+Hace mucho calor
+Tengo mucho frío
+¿Se va a su chacra?
+¿Se va a su chacra?
+¿Viene de su chacra?
+Ya me voy
+Chau
+Adiós
+Hasta luego
+Muchas gracias
+Discúlpame
+Por favor
+Puedo entrar
+Nos veremos otro día
+No vengan mañana
+Te espero sin falta
+Pasa y siéntate
+Vamos a comer
+¡Ándate¡
+¡No te quiero¡
+Te haré algunas preguntas
+¿Cuantos años tienes?
+¿En qué trabajas?
+¿Qué haces a diario?
+¿De dónde eres?
+¿De dónde  vienes ahora?
+¿Cuánto tiempo has estado en ese pueblo?
+¿Tienes esposo?
+¿Tienes esposa?
+¿Cuantos hijos tienes?
+¿Sabes escribir?
+¿Con quién vives aquí?
+¿Con quién has venido?
+¿Porqué has venido?
+¿Para qué has venido?
+¿Cuándo has venido aquí?
+¿Estás enfermo?
+¿Qué tiene tu niño?
+¿Qué edad tiene tu niño(a)?
+¿Está vacunado tu niño(a)?
+¿Cuándo fue la ultima vez que lo vacunaste?
+¿Donde fue que lo vacunaste?
+¿Desde cuando estas enfermo?
+¿Cuanto tiempo hace que estas enfermo?
+¿Con que estas enfermo?
+¿Hasta que día estuviste sano?
+¿Ahora que es lo que más te molesta? ¿Que parte?
+¿Muéstrame donde te duele?
+¿Como te duele? ¿Como es el dolor?
+¿Te arde?
+¿O como es?
+¿Tienes mucho frió?
+¿Tienes mucho calor?
+¿Sudas mucho?
+¿Por las tardes?
+¿Por las noches?
+¿Todo el día?
+¿Tienes escalofríos?
+¿Te sacude el cuerpo?
+¿Tienes fiebre?
+¿Te ha mordido el murciélago?
+¿Te ha mordido la serpiente?
+¿Te ha salido sangre?
+¿Tienes mareos?
+¿Te has caído?
+¿Vamos  conmigo?
+Ven
+¿Esta tu niño enfermo de susto?
+¿Tu niño esta kutipado?
+A tu niño lo has soleado mucho por eso tiene fiebre
+¿Se ha caído tu niño?
+¿Tienes asco?
+¿Te ha chocado el embarazo?
+¿Tienes antojos?
+¿Vomitas mucho?
+Que te duele
+Donde te duele
+¿Te duele mucho?
+¿Sientes mucho dolor?
+¿Desde cuando estas con ese dolor?
+¿Has tomado algo?
+¿Estas con la dieta?
+Señálame el lugar donde te duele
+¿Cuantos días  estas con ese dolor?
+¿Estas trabajando normal?
+¿Estas en descanso?
+¿Puedes caminar?
+¿Tienes mucho sueño?
+¿No puedes dormir?
+¿Tienes ganas de comer?
+¿Sientes hambre?
+¿Tienes sed?
+Masato (bebida)
+Chapo (bebida de platano)
+¿Quieres levantarte?
+¿Sientes pena?
+¿Quieres llorar?
+¿Tienes miedo?
+¿Tienes tos?
+Expectoras? Botas flema?
+De que color es u expectoración?
+¿Has  arrojado sangre después de toser?
+¿Te duele la espalda?
+¿Tienes dificultades para respirar?
+¿Te duele el tórax cuando respiras?
+¿Te cansas rápido cuando caminas?
+¿Tienes palpitaciones?
+¿Te duele el corazón?
+¿Se hinchan tus pies por la tarde?
+¿Te duelen las piernas cuando caminas?
+¿Te duelen las piernas cuando estas de pie?
+¿Tienes dificultad para tragar (comer)?
+¿O te duele cuando tragas?
+¿Tienes nauseas?
+¿Tienes vómitos?
+¿Has vomitado?
+¿Has vomitado con sangre?
+¿Te duele el estómago?
+¿Tienes gases?
+¿Tienes diarreas?
+¿Estas con diarrea?
+¿Estas estreñido?
+¿De que color son tus de posiciones?
+¿Has arrojado sangre?
+¿Tiene sangre tu deposición?
+¿Son negras?
+¿Tienes moco?
+¿Son blancas?
+¿Ha botado parásitos?
+¿Como eran los parásitos?
+¿Te duele el hígado?
+¿Te duele la región lumbar?
+¿Orinas a cada rato?
+¿Tu orina es como lavado de carne?
+¿Has orinado sangre?
+¿Sientes ardor cuando orinas?
+¿Menstruas a cada mes?
+¿Estas menstruando?
+¿Por cuantos días menstruas?
+¿Cuando fue la última menstruación?
+¿Cuando fue el primer día?
+¿Cuándo fue el último día?
+¿Tienes descensos?
+¿Tienes prurito vulvar? Te pica tus partes (te rascas)
+¿Desde cuando no le viene la menstruación?
+¿Estas embarazada?
+¿De cuantos meses?
+¿Has abortado?
+¿Cuantos abortos has tenido?
+¿Donde se controla su embarazo?
+¿Cuantos hijos vivos tienes?
+¿Cuantos hijos muertos tienes?
+¿De que murieron sus hijos?
+¿Cuando ha sido tu último parto?
+¿Ha sangrado mucho en ese parto?
+¿El nacimiento de tu bebe fue de cabeza o poto?
+¿Se quedo la placenta?
+¿Cual de tus hijos nació con mayor peso?
+¿Cuál de tus hijos nació con menor peso?
+Acude a una Posta de Salud si tienes:
+Fiebre
+Dolor o ardor para orinar
+Si tu niño no se mueve por varias horas
+Si tienes dolor en e l vientre
+Si has sangrado por tu vagina
+Si has perdido liquido por tu vagina
+Si se ha hinchado las piernas
+Si se hincha cara  - manos
+Si te duele mucho la cabeza
+Si te sientes enferma
+¿Se mueve tu bebe?
+¿Desde cuando no se mueva tú bebe?
+¿Ha perdido líquido  por la vagina?
+¿Ha perdido sangre por la vagina?
+¿Cuando empezaron los dolores más  seguidos?
+¿Tienes sonidos en los oídos?
+¿Vez como estrellitas?
+¿Cuando caminas te duele las piernas?
+¿Te duele la cintura?
+¿Tienes dificultades para caminar?
+¿Te duele alguna articulación?
+¿Escuchas ruidos cuando te mueves?
+¿Se te hincha los dedos?
+¿Sientes dolor de huesos?
+¿Te duele la cabeza?
+¿Puedes dormir?
+¿Se ha adormecido alguno de tus miembros?
+¿Tienes temblores?
+¿Te tiemblan las manos?
+¿Sientes mareos?
+¿A veces hablas incoherencias?
+¿Le duele la muela al frío o calor?
+¿Se le ha hinchado la cara?
+¿Sus heridas cicatrizan rápido?
+¿A tomado algún medicamento?
+¿A tomado alguna planta?
+¿Le duele al pasar la saliva?
+¿Estas heridas que tiempo lo tiene?
+¿Le a tratado antes un dentista?
+¿Que tiempo?
+¿Como se cuida sus dientes?
+¿Desde cuando estas así?
+Enséñame el diente que te duele
+¿Quieres sacarlo?
+¿Quieres curarlo?
+Siéntate
+Siéntense
+Párate
+¡Párense!
+Arrodillate
+Camina
+Caminen
+Camina rápido
+Sube
+Salten
+Salta
+Bájate
+Muévete
+No te muevas
+Empalma las manos
+Échate, acuéstate
+Échense
+Ladéate (ponte de costado)
+Levanta la cabeza
+Baja la cabeza
+Agachate
+Levanta las manos
+Respira
+No respires
+Hincha tu vientre
+Suelta tu vientre
+Puja
+Mueve tus dedos
+Levanta las nalgas
+Abre los brazos
+Abra las piernas
+Estira los pies
+Remángate
+Desnúdate
+Quítate la truza
+Quítate los pantalones
+No llores
+Descansa
+No trabajes
+No duermas
+Duerme
+No comas
+Come bastante
+No orines
+Orina al amanecer
+No botes tu orina
+No te levantes
+Toma liquido
+No tomes Masato
+No comas ají
+No comas salado
+No camines mucho
+No comas pan
+No comas grasa
+Toque la mesa
+Siéntense tranquilos
+Vamos conmigo
+Vamos todos
+Vienes solo(a)
+No digan nada
+No digas nada
+Abre la boca
+Cierra la boca
+Por favor no escupir al piso
+Niño - varón
+Niña - mujer
+Mujer - adulta
+Hombre
+Es tu esposa?
+Mi esposa
+Mi esposo
+Amigo
+Hermano
+Papá
+Mamá
+Abuelo ó anciano
+Abuelo
+Abuela
+Padre, tío paterno (hermano del padre)
+Tío materno (hermano de la madre)
+Madre, tía
+Suegro
+Suegra
+Primo (de hombre) hijo del tío materno, cuñado ( de hombre
+Hermana (de mujer), prima (de mujer, hija del tío paterno)
+Hermano (de hombre), primo (de hombre)
+Prima de mujer (hija del tío materno, diich)
+Hermano, primo
+Primo
+Prima
+Cuñado
+Cuñada
+Hijo
+Sobrino 
+Niña, hija, sobrina
+Sobrino
+Sobrina
+Sobrino
+Nieto
+Nieta
+Bisnieto
+Bisnieta
+Cabeza
+Frente
+Cara
+Nariz
+Ojos
+Pestaña
+Labio
+Lengua
+Dientes
+Muela
+Encía
+Laringe
+Oído
+Pelo
+Nuca
+Cerebro
+Espalda
+Columna
+Costillas
+Seno
+Pulmón
+Brazos
+Sobaco (axila)
+Manos
+Dedos
+Páncreas
+Estómago
+Barriga
+Vejiga
+Vientre
+Pubis
+Músculo de la parte anterior  del muslo
+Músculo (del muslo)
+Músculo redondo interno de la pantorrilla
+Muslo
+Muslo trasero
+Nalga
+Nervio
+Pierna
+Piel
+Dale solo lactancia materna a tu niño hasta los 06 meses
+Alimenta bien a tu niño
+Abriga bien a tu niño
+Vacuna a tu niño
+Si tu niño tiene fiebre llévalo urgente a la posta de salud
+Si tu niño está agitado llévalo urgente a la posta de salud
+Si tu niño no  puede respirar llévalo urgente a la posta de salud
+Si tu niño vomita todo llévalo urgente a la posta de salud
+Si tu niño no quiere despertar llévalo urgente a la posta de salud
+Si tu niño se pone morado llévalo urgente a la posta de salud
+Si tu niño esta enfermo y tienes dudas llévalo urgente a las posta de salud
+Toma agua hervida
+Lávate las manos antes de comer
+Lávate las manos después de ir al baño
+Consume alimentos o frutas bien cocinados o lavados
+Tapa los alimentos
+Lava bien los alimentos antes de consumirlos
+Lava los tus platos y cucharas antes consumir los alimentos
+No consumas comidas guardada
+Mantenga limpios a sus hijos
+Cuida que tus hijos no coman tierra
+Si tienes diarrea, tome abundante liquido
+Si tienes diarrea acuda a la posta de salud
+Si tu niño tiene diarrea no le quite los alimentos
+Si tu niño esta lactando, dale pecho mas  seguido
+Una pastilla desayuno almuerzo y cena por 7 dias
+Dos pastillas juntas
+Media pastilla
+Tomar todo el jarabe
+Una gota en el ojo
+Frotarse con la crema
+Una cuchara grande desayuno almuerzo y merienda
+Una cuchara pequeña desayuno almuerzo y merienda
+Una pastilla diaria
+Una ampolla cada tres meses
+Un ovulo por la noche
+señalización
+Paquete niño - adolescente
+Paquete mujer
+Paquete adulto - adulto mayor
+Consultorio
+Farmacia
+Triaje
+Tópico
+Laboratorio
+Odontología
+Punto de digitación
+Neonatología
+Sala de partos
+Hospitalización
+Sala de dilatación
+Sala de espera
+Servicios higiénicos
+Residencia
+Vientre abultado por el embarazo
+Adelgazado, adelgazada
+Causar adelgazamiento
+Adelgazar
+Adelgazarse
+Adormecer
+Agonizar
+Ahorcarse
+Alocarse
+Alteradamente
+Alumbramiento
+Alto
+Amebiasis
+Que tiene amebiasis (persona)
+Tener ampolla
+Ampollarse
+Anémico, anémica
+Antojo
+Enfermarse la  gente  por  no  satisfacer  un antojo
+Tener antojo de alguna comida
+Artritis
+Tener ceguera y artritis
+Asfixiarse
+Bronquitis
+Brujería
+Brujo maligno
+Enfermedad causada por un brujo
+Materia  flemosa  que  extrae  el  brujo  de  su cuerpo.
+Caerse rodando.
+Calmar el dolor
+Calmar el hambre
+Calmar la fiebre
+Calmar la sed
+Calmar lentamente
+Castigar con un puñetazo dejando un moretón como resultado del golpe
+Castrado
+Castrar
+Chucaque
+Chupo
+Cicatriz
+Que tiene cicatriz al secarse.
+Cicatrizado,  cicatrizada  (en  proceso  de  ser sanado)
+Cicatrizar
+Ciego, ciega.
+Colerico, colerica
+Cólico (estomacal)
+Conjuntivitis
+Conjurado, conjurada
+Conjurar
+Conjuro
+Contagiado, contagiada
+Contagiar
+Contagiarse
+Contagio
+Contagioso, contagiosa
+Cortar el cuero cabelludo (castigo por cometer adulterio)
+Cortarse con algún objeto filudo
+Cortarse con hacha o machete
+Costra
+Curación
+Curarse con medicina tradicional
+Cuerpo
+Cutipado, cutipada (victima de maleficio)
+Cutipar ( a la criatura)
+Cutiparse
+Causar daño con brujeria
+Causar daño, hacer daño
+Chato(a)
+Enfermarse por un daño
+Hacer debilitarse
+Defecar
+Defecar heces con sangre
+Desdentado, desentada (mito)
+Destetar
+Destripar
+Diarrea
+Diente
+Dolencia
+Doler
+Dolor
+Causar dolor
+Causar dolor  muy intenso, hacer sentir dolor
+Causarse dolor
+Dolor con hinchazón causado por una espina o aguja.
+Dolor de parto
+Producir dolor
+Provocar dolor
+Sentir dolor, tener dolor
+Tener dolores de parto
+Dolorosa, dolorosa
+Embarazada
+Embarazar
+Embarazo
+Ausencia  de la menstruación causada por el embarazo.
+Embrujar
+Encinta
+Encolerizar
+Enema
+Limpiar el estomago con enema
+Enfermarse
+Enfermarse de susto (un niño)
+Enfermarse en forma incurable
+Enfermarse por no lograr comer lo deseado (un animalito)
+Enfermarse por no satisfacer un antojo
+Enfermedad
+Enfermedad causada por un brujo
+Enfermedad de los ojos.
+Enfermizo, enfermiza
+Ser enfermizo
+Enfermo, enferma
+Estar enfermo
+Estar enfermos
+Estar gravemente enfermo a causa de una comida que le hizo daño
+Enflaquecer
+Enflaquecerse
+Epidemia
+Eructar
+Espermatozoide
+Esqueleto
+Estimulante sexual para los ancianos
+Estornudar
+Estreñir
+Expirar
+Que esta por expirar
+Eyacular
+Hacer eyacular
+Fallecimiento
+Estar feliz
+Finado, finada
+Flaco (a)
+Flema
+Flemoso, flemosa
+Fontanela
+Fortificante
+Forúnculo
+Fracturado, fracturada
+Fracturar
+Ganglio del cuello o de la ingle
+Gatear
+Gestación
+Estado de gestación
+Gestante
+Gestar
+Golpe
+Dar golpe con la rodilla
+Hacer botar sangre de golpe
+Golpeado, golpeada
+Golpear
+Golpear con el dedo doblado
+Golpear con fuerza
+Golpear con machete, mano, palo
+Golpear contra el suelo
+Golpear jugando
+Golpearse con alguien
+Golpearse con fuerza
+Golpearse el cuerpo con  las manos
+Gordo (a)
+Que se golpea por si solo
+Gripe
+Hepatitis
+Herida
+Herido, herida
+Herir
+Herir a alguien psicológicamente
+Hiel
+Hígado
+Hipo
+Infección
+Inyectar
+Jorobado, jorobada
+Lagaña, legaña
+Lagrima
+Leche
+Leishmaniasis
+Lesion
+Lunar
+Malaria
+Mancha blanca de granos que aparece en la piel a causa de la enfermedad pinta.
+Medicina
+Medicina tradicional propia de la aguaruna
+Medicinar
+Medicinar con medicina tradicional, propia de la cultura aguaruna
+Medicinarse  (con medicina tradicional)
+Medico
+Ir al medico para ser sanado
+Llevar a un enfermo al medico
+Medico  (medicina tradicional)
+Medula
+Mejilla
+Meningitis
+Moco
+Sacar la muela
+Muerte
+Dar muerte
+Estar en víspera o al borde de la muerte
+Muerte de una persona
+Muerte de varias personas , ir acabándose o menguando poco a poco por la muerte
+Que esta en víspera de al muerte
+Muerto, muerta
+Casi muerto
+Músculo de la parte anterior  del muslo
+Músculo (del muslo)
+Músculo redondo interno de la pantorrilla
+Muslo
+Muslo trasero
+Nalga
+Nariz
+Náusea
+Neumonía
+Orina
+Oxiuros
+Paludismo
+Pastillas
+Tomar pastillas
+Pedo
+Hacer perder la virginidad
+Pierna
+Placenta
+Hacerse crecer   pubis con tratamiento vegetal (se refiere a la mujer)
+Pulmonía
+Pus
+Sacar pus
+Salir pus
+Quejarse lastimeramente
+Quejido
+Quemado,  quemada
+Quemarse
+Salud
+Buen estado de salud
+Saludable
+Acto de sanar
+Sanarse
+Placenta
+Hacerse crecer   pubis con tratamiento vegetal (se refiere a la mujer)
+Pulmonía
+Pus
+Sacar pus
+Salir pus
+Quejarse lastimeramente
+Quejido
+Quemado,  quemada
+Quemarse
+Salud
+Buen estado de salud
+Saludable
+Acto de sanar
+Sanarse
+Sanarse  la herida
+Sangrar
+Sangre
+Sarampión
+Sarna
+Sarnoso, sarnosa
+Semen
+Sepulcro
+Sepultar
+Permitir a otros tener relaciones sexuales
+Tener relaciones sexuales
+Sobaco
+Sobar
+Suicidarse
+Suicidio
+Varicela
+Vello
+Sin vellos
+Tener mucha vellosidad
+Verruga
+Vida
+Que esta en sus últimos días de vida
+Sumir el vientre
+Viruela
+a
+Si
+No
+Que
+Más
+Tener
+Quien
+¿Como?
+¿Cuando?
+¿Porque?
+¿Donde?
+Ven
+Uno
+Dos
+Tres
+Cuatro
+Cinco
+Seis
+Siete
+Ocho
+Nueve
+Diez
+Once
+Doce
+Trece
+Catorce
+Quince
+Dieciséis
+Diecisiete
+Dieciocho
+Diecinueve
+Veinte
+el sol ha salido
+el sol se ha alzado
+el sol esta está casi entre los dos
+medio día
+el sol esta listo para declinar
+cuando es tarde
+el sol se pone
+se ha oscurecido
+el sol se ha escondido
+medianoche
+el día visita
+amanece
+Buenos días
+¿Cómo estás?
+Gracias
+Muy bien gracias
+¿Y usted?
+Muy bien
+Hola
+Yo bien
+¿Dónde vives tú?
+Yo vivo en el Jr.
+Nos vemos
+Ya.
+Corona
+Collar
+Arete de plumas
+Tambor
+Cinta para pelo
+¿Cómo está su esposo?
+Mi esposa está bien, gracias.
+¿Cómo está su hijo?
+Mi hijo está enfermo.
+¿Dónde estudias?
+Yo estudio en la Universidad
+¿Quién es el apu aquí?
+El apu es
+¿Vas a ir a Tutumberos?
+Si claro por supuesto.
+¿Quién es el?
+préstame
+Ayúdame
+Feliz cumpleaños
+Quisiera pasear
+¿Qué hora es?
+Te quiero
+vamos a la danza
+por ti
+amor
+amorcito
+Bichuchi blanco
+Bichuchi amarillo
+Grano de oro
+Plátano de freír
+Plátano de seda
+Plátano isleño
+Sachapapa
+Daledale amarillo
+Daledale blanco
+Serma
+Zapallo
+Yacón silvestre
+Caña de azúcar
+Cocona
+Coconillo
+Bituca
+Camote
+Yuca
+Papaya
+Almendra
+Chupe
+Sacha mango
+Huacambo
+Huacambillo
+Chambira
+Huicungo
+Chimico grande
+Chimico chico
+Ovilla
+Hungurabi
+Pijuayo
+Aguaje
+Huasé
+Pan de árbol silvestre
+Leche caspi
+Zapote
+Shapaja morado
+Shapaja amarillo
+Algodón
+Corteza de árbol
+Fibra de chambira
+blanco
+negro
+azul marino
+rojo
+verde
+amarillo
+celeste
+guinda
+Hermana Mercedes, en la radio escuché a una persona hablar sobre los “conocimientos colectivos” de los pueblos indígenas
+¿Tú sabes sobre eso?
+Sí, Segundo.
+Yo asistí a una capacitación sobre ese tema hace muchos años, y aprendí que los conocimientos colectivos, o saberes ancestrales, son toda la sabiduría que hemos desarrollado los pueblos indígenas andinos y amazónicos por muchos años.
+Es la sabiduría que se hemos generado en nuestra relación con la naturaleza y que usamos en nuestra vida diaria.
+¿Y cómo aprendemos esa sabiduría?
+La aprendemos de nuestros padres y abuelos, y, a su vez, ellos la aprendieron de sus antepasados;
+es decir, heredamos nuestra sabiduría de generación en generación.
+Son conocimientos que, con el tiempo, sufren algunos cambios porque se van adaptando a las diversas necesidades que tenemos.
+Te entiendo.
+¿Y dónde podemos ver esos conocimientos colectivos?
+Los conocimientos colectivos se expresan de muchas maneras.
+Por ejemplo, a través de tejidos, danzas, canciones, ceremonias, artesanías, recetas de cocina, usos de plantas medicinales, técnicas de caza y cultivo, maneras de cultivar y cuidar la tierra
+¡y muchas otras formas más!
+Uso de la maca para la fortaleza y la buena salud
+Uso de la uña de gato para la cicatrización de heridas
+Tablas de Sarhua
+- Ayacucho
+Siembra de agua en los Andes
+Arte Kené en cerámica shipibo
+Cuidados post parto de comunidades indígenas
+¿Quiénes pueden usar los conocimientos colectivos, Mercedes?
+Los conocimientos colectivos se vienen usando a lo largo de la historia por los pueblos indígenas;
+pero, además, pueden ser practicados por otros grupos de personas en beneficio de la humanidad.
+Por ejemplo, muchas plantas medicinales descubiertas por los pueblos indígenas han sido, y siguen siendo, utilizadas también para fabricar medicamentos.
+Pero, ojo, Segundo, aun siendo usados por otros,
+¡esos conocimientos siguen siendo nuestros!
+¡Los conocimientos colectivos forman parte de nuestra identidad y nos ayudan a subsistir, por eso tenemos que cuidarlos!
+¿Y cómo podemos hacer para cuidar y proteger nuestros conocimientos colectivos?
+Así como tenemos derecho a la identidad cultural, derecho a la tierra y al territorio, y derecho a la consulta previa, los pueblos indígenas tenemos también derecho a la propiedad de nuestros conocimientos colectivos.
+¿Y, en qué consiste ese derecho?
+Consiste en que nuestros conocimientos colectivos se protejan de modo que otros no puedan apropiarse de ellos.
+Nadie puede usar nuestros conocimientos, y si alguien lo hace nos debe pedir permiso o puede tener una sanción.
+¡Tenemos que hacer que se respeten nuestros derechos!
+Existen respaldos nacionales e internacionales.
+Por ejemplo, en el Perú, desde el año 2002, existe la Ley 27811 (“Régimen de Protección de los Conocimientos Colectivos de los Pueblos Indígenas Vinculados a los Recursos Biológicos”) que tiene como objetivo garantizar la protección de los conocimientos colectivos de los pueblos indígenas.
+La ley de protección de los conocimientos colectivos incluye varias herramientas como:
+- El consentimiento informado previo,
+- La posibilidad de suscribir contratos de licencia de uso,
+- Sancionar a quienes revelen, adquieran o usen nuestro conocimiento colectivo sin nuestro consentimiento y de manera desleal.
+- Preservar nuestros conocimientos colectivos a través de los Registros.
+¿Y qué tipos de conocimientos colectivos protege la Ley 27811?
+¿Cómo hace la ley para proteger los conocimientos colectivos?
+La ley tiene diversas formas de proteger nuestros conocimientos colectivos:
+por ejemplo, lo hace a través del “consentimiento informado previo”, a través de los “contratos de licencia de uso” o a través de las sanciones a quienes no respeten nuestros derechos.
+Ya.
+¿Y qué sería lo del “consentimiento informado previo”?
+El consentimiento informado previo es la autorización que podemos otorgar los pueblos indígenas a otras personas, para que se conozca y haga uso de alguno de nuestros conocimientos colectivos.
+El objetivo del “consentimiento informado previo” es garantizar que se dé acceso a nuestros conocimientos colectivos de forma correcta.
+Los pueblos indígenas debemos tomar la decisión de si deseamos o no compartir nuestros conocimientos colectivos bajo ciertas condiciones.
+Ya entendí.
+Ahora explícame sobre los “contratos de licencia de uso”.
+Son acuerdos legales que se realizan entre los representantes de los pueblos indígenas que tienen un conocimiento colectivo y otras personas, como empresarios, que quieren beneficiarse económicamente de esos conocimientos.
+¿Y cómo se hacen esos contratos?
+La persona que está interesada en usar con fines comerciales los conocimientos colectivos tiene que informarle a la comunidad lo que piensa hacer con esos conocimientos, y tiene que pedirle permiso para su uso.
+Si la comunidad dice que sí, podrá suscribir el contrato de licencia.
+¿Cómo así “condiciones”?
+Por ejemplo, el tipo de compensación que recibirá la comunidad;
+o cada cuánto tiempo se tiene que informar sobre los avances del estudio;
+o lo que se esté fabricando con nuestros conocimientos.
+¿Qué debería tener un contrato de licencia de uso?
+Los contratos de licencia de uso deben tener los siguientes elementos:
+a) La identificación de los que intercambian el conocimiento colectivo.
+b) La descripción del conocimiento colectivo.
+c) El establecimiento de las compensaciones que recibirán los pueblos indígenas.
+d) La información sobre los objetivos, riesgos e implicancias de la actividad que se realizará con los conocimientos colectivos.
+e) La obligación de informar periódicamente al pueblo indígena acerca de los avances de su actividad.
+f) La obligación de contribuir al fortalecimiento de las capacidades de los pueblos indígenas en relación con sus conocimientos colectivos.
+Ahora me queda claro también lo de los contratos.
+Solo falta que me cuentes un poquito sobre las “sanciones”...
+Bueno, eso es para cuando otras personas revelen, adquieran o usen nuestro conocimiento colectivo sin nuestro consentimiento y de manera desleal.
+¿Y qué sucede cuando alguien revela o se apropia de manera ilegal de nuestros conocimientos?
+"Cuando eso ocurre, el Instituto Nacional de Defensa de la Competencia y de la Protección de la Propiedad Intelectual (Indecopi) puede aplicar una sanción de multa de hasta 150 UIT."
+¿Entonces, por qué son importantes el consentimiento informado previo, los contratos de licencia de uso y las sanciones?
+¡Pues sucede que muchas personas vienen de fuera y se llevan nuestros conocimientos sin permiso y, además, ganan dinero y no nos dejan nada!
+Y Mercedes, te cuento que otra forma de proteger nuestros conocimientos colectivos se hace con los “Registros de conocimientos colectivos” que elabora Indecopi con la ayuda de los pueblos indígenas, contribuyendo así a preservar y a salvaguardar nuestros conocimientos evitando que se pierdan en el tiempo.
+Pero eso del Registro parece difícil...
+¿Cómo registramos nuestros conocimientos colectivos ante el INDECOPI?
+No Mercedes, en realidad es bastante fácil.
+Mira, te lo explico así:
+Las solicitudes de Registro de conocimientos colectivos de los pueblos indígenas se presentan al INDECOPI y deben tener la siguiente información:
+a) La identificación del pueblo indígena que solicita el Registro de sus conocimientos;
+b) La identificación del representante del pueblo indígena;
+c) El nombre del recurso biológico (¡incluso puede ser el nombre indígena!) sobre el cual tenemos el conocimiento colectivo;
+d) La indicación del uso que se da al recurso biológico;
+e) Una descripción completa del conocimiento colectivo; y
+f) Un acta que muestra el acuerdo de registrar el conocimiento por parte del pueblo indígena.
+Pero seguro eso debe ser caro, María...
+Mercedes, presentar las solicitudes de Registro al Indecopi no cuesta nada, es gratis, y además ellos nos ayudan a facilitar el proceso.
+Mira, aquí hay un ejemplo de la información que se presenta, para que te orientes:
+PASO DEL PROCEDIMIENTO
+IDENTIFICACIÓN DE PUEBLO INDÍGENA
+IDENTIFICACIÓN DE REPRESENTANTE DEL PUEBLO INDÍGENA
+NOMBRE DEL RECURSO BIOLÓGICO
+USOS QUE SE LE DA AL RECURSO BIOLÓGICO
+DESCRIPCIÓN DEL CONOCIMIENTO COLECTIVO
+Ejemplo
+Pueblo: Jaqaru
+Comunidad Campesina: Pukarumy
+Departamento: Puno
+Marcelo Chilique Mondragón
+Sangre de Grado - Croton lechleri
+Cicatrizante de heridas
+La resina de la planta se extrae y se aplica sobre la herida
+Ya entendí todo lo que me dijiste.
+Solo me queda una duda:
+tú me hablaste también de respaldos internacionales para la protección de nuestros conocimientos colectivos.
+¿Cuáles serían esos respaldos?
+Yo te digo, Mercedes:
+uno de los más importantes respaldos internacionales para la protección de nuestros conocimientos colectivos es el Protocolo de Nagoya de las Naciones Unidas, que dice cómo debe ser la distribución de los beneficios cuando se usan nuestros conocimientos colectivos.
+¿Y qué dice el Protocolo?
+Entre otras cosas, reconoce nuestro derecho a participar en las decisiones sobre los beneficios del uso de nuestros conocimientos colectivos, de manera que el proceso sea justo.
+¿Y nuestro país tiene que cumplir lo que dice este Protocolo?
+Sí, el Perú ha ratificado este Protocolo el 2014, así que el Estado tiene que cumplir con sus objetivos, y eso se hace, por ejemplo, a través de la Ley 27811.
+Veamos qué instrumentos nacionales e internacionales protegen los derechos de los pueblos indígenas:
+Ámbito Internacional
+- El Convenio de la Organización Internacional del Trabajo sobre Pueblos Indígenas y Tribales en Países Independientes (OIT, 1989).
+- La Declaración de las Naciones Unidas sobre los Derechos de los Pueblos Indígenas (ONU, 2007).
+- La Declaración Americana sobre los Derechos de los Pueblos Indígenas (OEA, 2016).
+- El Protocolo de Nagoya sobre Acceso a los Recursos Genéticos y Participación Justa y Equitativa en los Beneficios del Convenio de Diversidad Biológica (ONU, 2010).
+Ámbito Nacional
+- Ley de Comunidades Nativas y de Desarrollo Agrario de la Selva y de Ceja de Selva - Decreto Ley 22175 (año 1978), y su reglamento (año 1979).
+- Ley General de Comunidades Campesinas - Ley 24656 (año 1987) y su reglamento (año 1991).
+- Ley del Derecho a la Consulta Previa a los Pueblos Indígenas u Originarios, reconocido en el Convenio 169 OIT Ley 29785 (año 2011) y su reglamento (año 2012).
+- Ley que establece el Régimen de Protección de los Conocimientos Colectivos de los Pueblos Indígenas Vinculados a los Recursos Biológicos - Ley 27811 (año 2002).
+- Ley de Protección al Acceso a la Diversidad Biológica Peruana y los Conocimientos Colectivos de los Pueblos Indígenas - Ley 28216 (año 2004)
+Indecopi:
+- El Instituto Nacional de Defensa de la Competencia y de la Protección de la Propiedad Intelectual (Indecopi) es la Autoridad Nacional Competente y tiene entre sus funciones proteger y registrar los conocimientos colectivos de los pueblos indígenas.
+- En caso de que se revelen, adquieran o usen los conocimientos colectivos sin el consentimiento de los pueblos indígenas y de manera desleal, tiene la potestad de aplicar una sanción de multa de hasta 150 UIT.
+- Brinda asesoría a los pueblos indígenas para el registro y protección de sus conocimientos colectivos.
+Ahora ya sabemos cómo podemos proteger nuestros conocimientos colectivos y qué respaldos legales existen.
+¡Tenemos que hacer que se respeten nuestros derechos!
+SOLUCIÓN DE DISCREPANCIAS ENTRE PUEBLOS INDÍGENAS U ORIGINARIOS
+Hola, hermano Moisés, veo que estás de regreso del viaje que hiciste,
+¿cómo te fue?
+Hola, hermana Nancy.
+Me fue bien, pero me he enterado de que en ese pueblo indígena están negociando con unas personas que representan a una empresa.
+¿Cómo así, Moisés, de qué negociación se trata?
+Es que la empresa quiere hacer unas cremas de ungurahui usando los conocimientos colectivos del pueblo.
+Pero en nuestro pueblo indígena también sabemos cómo usar el ungurahui y
+¡nadie nos ha preguntado nada!
+Sí, hermana, lo mismo estaba pensando yo,
+¿qué dirán nuestras sabias y nuestros sabios de esto?
+Hola, sobrina y sobrino.
+Les he estado escuchando y, sí, tienen razón.
+Ustedes están hablando del uso de nuestros conocimientos colectivos sobre recursos biológicos.
+Les explico:
+CONOCIMIENTOS COLECTIVOS
+- Los conocimientos colectivos, o saberes ancestrales, son toda la sabiduría que hemos desarrollado los pueblos indígenas andinos y amazónicos por muchos años, y que aprendemos de nuestros padres, madres y abuelos y abuelas.
+- Es una sabiduría que los pueblos indígenas hemos generado en nuestra relación con la naturaleza y que usamos en nuestra vida diaria.
+- Los conocimientos colectivos asociados a los recursos biológicos son aquellos conocimientos que los pueblos indígenas tenemos sobre los usos que les damos a los elementos vivos de la naturaleza, como las plantas y los animales.
+- El uso medicinal y cosmético del ungurahui es un ejemplo de conocimiento colectivo asociado a recursos biológicos.
+Antes me explicaron que, si un pueblo indígena quiere negociar sobre el uso de sus conocimientos colectivos, tiene primero que informar al mayor número posible de pueblos indígenas que también posee ese conocimiento.
+¿Y eso por qué se hace, tía Yolanda?
+Porque nosotros somos un pueblo indígena que también posee ese conocimiento, y por eso, se deben tomar en cuenta nuestros intereses e inquietudes, especialmente las relacionadas con nuestros valores espirituales y creencias religiosas.
+¿QUIÉNES SOMOS LOS PUEBLOS INDÍGENAS?
+- Los pueblos indígenas existimos antes de la conquista, la colonia o del establecimiento del Estado.
+- Los pueblos indígenas mantenemos todas nuestras tradiciones culturales, o parte de ellas.
+- Los pueblos indígenas nos reconocemos a nosotros mismos como indígenas. Es decir, poseemos una identidad indígena.
+- Los pueblos indígenas podemos organizarnos en comunidades campesinas en los Andes, así como en comunidades nativas en la Amazonía.
+¿Y qué debemos hacer ahora?,
+¿cómo lo solucionamos con los hermanos y las hermanas del otro pueblo indígena?
+Bueno, esto podría tratarse de una discrepancia;
+es decir, cuando dos personas o grupos no pueden llegar a un acuerdo.
+Pero, tranquilo sobrino, los pueblos indígenas tenemos las herramientas para resolver esta situación.
+¿A qué te refieres, tía Yolanda?
+Lo que pasa es que, como pueblos indígenas, tenemos el derecho colectivo a conservar nuestras costumbres y nuestras instituciones, entre ellas, nuestras normas internas para resolver discrepancias.
+¿Qué quiere decir eso del derecho a conservar nuestras costumbres e instituciones, tía?
+Son todas las formas en que organizamos nuestra vida en comunidad;
+por ejemplo, la manera en que elegimos a nuestros representantes, nuestra economía, nuestra cultura, que incluye la manera de vestirnos, de hablar y, principalmente, nuestro derecho consuetudinario.
+¿Derecho consuetudinario, tía?
+¿Qué es eso?
+El derecho consuetudinario son las costumbres y prácticas propias que tenemos los pueblos indígenas para resolver nuestros problemas internos.
+Son normas de convivencia que no están escritas, pero que se cumplen porque se ha hecho costumbre cumplirlas a lo largo de nuestra historia.
+CARACTERÍSTICAS DEL DERECHO CONSUETUDINARIO:
+- Es considerado una parte integral del orden social y cultural de un pueblo.
+- Es un elemento principal de la identidad étnica de un pueblo indígena, nación o comunidad.
+- Es anterior al derecho oficial del Estado y puede adecuarse a los cambios culturales e institucionales de los pueblos indígenas.
+- Se reconoce y se comparte por un grupo (comunidad, pueblo o grupo étnico, etcétera).
+- Cada pueblo indígena puede tener su propio derecho consuetudinario. 
+- Son reconocidos por el Estado siempre que no contradigan los derechos humanos reconocidos a nivel nacional e internacional.
+Ya voy entendiendo, tía.
+Pero, en este caso, somos dos pueblos indígenas diferentes que tenemos el problema.
+Es verdad.
+En este caso, lo que podemos hacer es pedir ayuda a la organización indígena que nos representa y con quienes nos relacionamos de manera inmediata.
+Por ejemplo,
+¿podríamos ir a la federación local?
+Sí, ellos podrán ayudarnos a conversar para resolver la discrepancia.
+Solo tenemos que recordar que las normas tradicionales pueden variar entre los pueblos.
+¿Y si de todas maneras no llegamos a un acuerdo?
+En ese caso, podremos pedir apoyo a la organización regional o a la nacional.
+Lo importante es que cuando lleguemos a un acuerdo, todo debe quedar por escrito en un acta, como constancia de las decisiones a las que hemos llegado.
+¿Y qué pasaría si la discrepancia fuera entre comunidades de un mismo pueblo indígena?
+Las autoridades tradicionales de cada comunidad deben dialogar sobre la discrepancia y aplicar el derecho consuetudinario que hay en sus territorios.
+Si las autoridades no llegan a un acuerdo, podemos llamar a alguna de las organizaciones que representan a esas comunidades.
+Ya entiendo, pero en mi viaje escuché también que ellos mismos, dentro de la comunidad, están teniendo problemas para ponerse de acuerdo en la decisión final.
+Hermano Moisés, si tienen discrepancias internas, tendrían que recurrir al presidente o presidenta de la comunidad, quien les ayudará a resolver el caso con ayuda de los estatutos comunales, que están basados igualmente en el derecho consuetudinario.
+En este caso, también será importante colocar por escrito, en un acta, todas las decisiones que se tomen.
+Me va quedando claro tía Yolanda, pero me he dado cuenta de que, muchas veces, las mujeres somos excluidas de las decisiones en las comunidades.
+Es verdad Nancy.
+Aunque eso está cambiando, nuestras voces siguen siendo poco escuchadas.
+Es verdad que hay mucho por hacer.
+Es necesario que más mujeres se informen y participen en la toma de decisiones y en la solución de discrepancias.
+Así es Moisés, es importante que las mujeres participemos, sobre todo cuando se trata de conocimientos colectivos asociados a los recursos biológicos.
+Por ello, desde nuestros pueblos podemos y debemos promover la participación de las mujeres indígenas en los espacios de toma de decisión.
+¡Ahora ya conocemos nuestros derechos!
+¡Y ya sabemos qué podemos hacer uso de nuestro derecho consuetudinario para resolver nuestras discrepancias!
+MARCO LEGAL DEL DERECHO COLECTIVO A CONSERVAR LAS COSTUMBRES E INSTITUCIONES DE LOS PUEBLOS INDÍGENAS:
+- El Convenio 169 de la OIT sobre Pueblos Indígenas y Tribales en Países Independientes.
+- La Declaración de las Naciones Unidas sobre los Derechos de los Pueblos Indígenas.
+- La Declaración Americana sobre los Derechos de los Pueblos Indígenas. 
+- La Constitución Política del Perú.
+Cuando Paco Yunque y su madre llegaron a la puerta del colegio, los niños estaban jugando en el patio.
+La madre le dejó y se fue.
+Paco, paso a paso, fue adelantándose al centro del patio, con su libro primero, su cuaderno y su lápiz.
+Paco estaba con miedo, porque era la primera vez que venía a un colegio y porque nunca había visto a tantos niños juntos.
+Varios alumnos, pequeños como él, se le acercaron y Paco, cada vez más tímido, se pegó a la pared y se puso colorado.
+¡Qué listos eran todos esos chicos!
+¡Qué desenvueltos!
+Como si estuviesenen su casa.
+Gritaban.
+Corrían.
+Reían hasta reventar.
+Saltaban.
+Se daban de puñetazos.
+Eso era un enredo.
+Paco estaba también atolondrado porque en el campo no oyó nunca sonar tantas voces de personas a la vez.
+En el campo hablaba primero uno, después otro, después otro y después otro.
+A veces, oyó hablar hasta cuatro o cinco personas juntas.
+Era su padre, su madre, don José, el cojo Anselmo y la Tomasa.
+Con las gallinas eran más.
+Y más todavía con la acequia, cuando crecía... Pero no.
+Eso no era ya voz de personas, sino otro ruido, muy diferente.
+Y ahora sí que esto del colegio era una bulla fuerte, de muchos.
+Paco estaba asordado.
+Un niño rubio y gordo, vestido de blanco, le estaba hablando.
+Otro niño, más chico, medio ronco y con blusa azul, también le hablaba.
+De diversos grupos se separaban los alumnos y venían a ver a Paco, haciéndole muchas preguntas.
+Pero Paco no podía oír nada, por la gritería de los demás.
+Un niño trigueño, cara redonda y con una chaqueta verde muy ceñida en la cintura, agarró a Paco por un brazo y quiso arrastrarlo.
+Pero Paco no se dejó.
+El trigueño volvió a agarrarlo con más fuerza y lo jaló.
+Paco se pegó más a la pared y se puso más colorado.
+En ese momento sonó la campana, y todos entraron a los salones de clase.
+Dos niños -los hermanos Zumiga- tomaron de una y otra mano a Paco y le condujeron a la sala de primer año.
+Paco no quiso seguirlos al principio, pero luego obedeció, porque vio que todos hacían lo mismo.
+Al entrar al salón se puso pálido.
+Todo quedó repentinamente en silencio y este silencio le dio miedo a Paco.
+Los Zumiga le estaban jalando, el uno para un lado y el otro para el otro lado, cuando de pronto le soltaron y lo dejaron solo.
+El profesor entró.
+Todos los niños estaban de pie, con la mano derecha levantada a la altura de la sien, saludando en silencio y muy erguidos.
+Paco, sin soltar su libro, su cuaderno y su lápiz, se había quedado parado en medio del salón, entre las primeras carpetas de los alumnos y el pupitre del profesor.
+Un remolino se le hacía en la cabeza.
+Niños.
+Paredes amarillas.
+Grupos de niños.
+Vocerío.
+Silencio.
+Una tracalada de sillas.
+El profesor.
+Ahí, solo, parado, en el colegio.
+Quería llorar.
+El profesor le tomó de la mano y lo llevó a instalar en una de las carpetas delanteras junto a un niño de su mismo tamaño.
+El profesor le preguntó:
+-¿Cómo se llama usted?
+Con voz temblorosa, Paco respondió muy bajito:
+-Paco.
+-¿Y su apellido?
+Diga usted todo su nombre.
+-Paco Yunque.
+-Muy bien.
+El profesor volvió a su pupitre y, después de echar una mirada muy seria sobre todos los alumnos, dijo con voz de militar:
+-¡Siéntense!
+Un traqueteo de carpetas y todos los alumnos ya estaban sentados.
+El profesor también se sentó y durante unos momentos escribió en unos libros.
+Paco Yunque tenía aún en la mano su libro, su cuaderno y su lápiz.
+Su compañero de carpeta le dijo:
+-Pon tus cosas, como yo, en la carpeta.
+Paco Yunque seguía muy aturdido y no le hizo caso.
+Su compañero le quitó entonces sus libros y los puso en la carpeta.
+Después, le dijo alegremente:
+-Yo también me llamo Paco.
+Paco Fariña.
+No tengas pena.
+Vamos a jugar con mi tablero.
+Tiene torres negras.
+Me lo ha comprado mi tía Susana.
+¿Dónde está tu familia, la tuya?
+Paco Yunque no respondía nada.
+Este otro Paco le molestaba.
+Como éste eran seguramente todos los demás niños:
+habladores, contentos y no les daba miedo el colegio.
+¿Por qué eran así?
+Y él, Paco Yunque, ¿por qué tenía tanto miedo?
+Miraba a hurtadillas al profesor, al pupitre, al muro que había detrás del profesor y al techo.
+También miró de reojo, a través de la ventana, al patio, que estaba ahora abandonado y en silencio.
+El sol brillaba afuera.
+De cuando en cuando, llegaban voces de otros salones de clase y ruidos de carretas que pasaban por la calle.
+¡Qué cosa extraña era estar en el colegio!
+Paco Yunque empezaba a volver un poco de su aturdimiento.
+Pensó en su casa y en su mamá.
+Le preguntó a Paco Fariña:
+-¿A qué hora nos iremos a nuestras casas?
+-A las once.
+¿Dónde está tu casa?
+-Por allá.
+-¿Está lejos?
+-Sí... No...Paco Yunque no sabía en qué calle estaba su casa, porque acababan de traerlo, hacía pocos días, del campo y no conocía la ciudad.
+Sonaron unos pasos de carrera en el patio, apareció en la puerta del salón Humberto, el hijo del señor Dorian Grieve, un inglés, patrón de los Yunque, gerente de los ferrocarriles de la «Peruvian Corporation» y alcalde del pueblo.
+Precisamente a Paco le habían hecho venir del campo para que acompañe al colegio a Humberto y para que juegue con él, pues ambos tenían la misma edad.
+Sólo que Humberto acostumbraba venir tarde al colegio y esta vez, por ser la primera, la señora Grieve le había dicho a la madre de Paco:
+-Lleve usted ya a Paco al colegio.
+No sirve que llegue tarde el primer día.
+Desde mañana esperará a que Humberto se levante y los llevará usted juntos a los dos.
+El profesor, al ver a Humberto Grieve, le dijo:
+-¿Hoy otra vez tarde?
+Humberto, con gran desenfado, respondió:
+-Me he quedado dormido.
+-Bueno -dijo el profesor-.
+Que ésta sea la última vez.
+Pase a sentarse.
+Humberto Grieve buscó con la mirada donde estaba Paco Yunque.
+Al dar con él, se le acercó y le dijo imperiosamente:
+-Ven a mi carpeta conmigo.
+Paco Fariña le dijo a Humberto Grieve:
+-No.
+Porque el señor lo ha puesto aquí.
+-¿Y a ti qué te importa?
+-le increpó Grieve violentamente, arrastrando a Yunque por un brazo a su carpeta.
+-¡Señor!
+-gritó entonces Fariña-, Grieve se está llevando a Paco Yunque a su carpeta.
+El profesor cesó de escribir y preguntó con voz enérgica:
+-¡Vamos a ver!
+¡Silencio!
+¿Qué pasa ahí?
+Fariña volvió a decir:
+-Grieve se ha llevado a su carpeta a Paco Yunque.
+Humberto Grieve instalado ya en su carpeta con Paco Yunque, le dijo al profesor:
+-Sí, señor.
+Porque Paco Yunque es mi muchacho.
+Por eso.
+El profesor sabía esto perfectamente y le dijo a Humberto Grieve:
+-Muy bien.
+Pero yo lo he colocado con Paco Fariña, para que atienda mejor las explicaciones.
+Déjelo que vuelva a su sitio.
+Todos los alumnos miraban en silencio al profesor, a Humberto Grieve y a Paco Yunque.
+Fariña fue y tomó a Paco Yunque por la mano y quiso volverlo a traer a su carpeta, pero Grieve tomó a Paco Yunque por el otro brazo y no lo dejó moverse.
+El profesor le dijo otra vez a Grieve:
+-¡Grieve!
+¿Qué es esto?
+Humberto Grieve, colorado de cólera, dijo:
+-No, señor.
+Yo quiero que Yunque se quede conmigo.
+-Déjelo, le he dicho.
+-No, señor.
+-¿Cómo?
+-No.
+El profesor estaba indignado y repetía, amenazador:
+-¡Grieve!
+¡Grieve!
+Humberto Grieve tenía bajos los ojos y sujetaba fuertemente por el brazo a Paco Yunque, el cual estaba aturdido y se dejaba jalar como un trapo por Fariña y por Grieve.
+Paco Yunque tenía ahora más miedo a Humberto Grieve que al profesor, que a todos los demás niños y que al colegio entero.
+¿Por qué Paco Yunque le tenía tanto miedo a Humberto Grieve?
+Porque este Humberto Grieve solía pegarle a Paco Yunque.
+El profesor se acercó a Paco Yunque, le tomó por el brazo y le condujo a la carpeta de Fariña.
+Grieve se puso a llorar, pataleando furiosamente en su banco.
+De nuevo se oyeron pasos en el patio y otro alumno, Antonio Gesdres -hijo de un albañil-, apareció a la puerta del salón.
+El profesor le dijo:
+-¿Por qué llega usted tarde?
+-Porque fui a comprar pan para el desayuno.
+-¿Y por qué no fue usted más temprano?
+-Porque estuve alzando a mi hermanito y mamá está enferma y papá se fue a su trabajo.
+-Bueno -dijo el profesor, muy serio-.
+Párese ahí... Y, además, tiene usted una hora de reclusión.
+Le señaló un rincón, cerca de la pizarra de ejercicios.
+Paco Fariña se levantó entonces y dijo:
+-Grieve también ha llegado tarde, señor.
+-Miente, señor, -respondió rápidamente Humberto Grieve-.
+No he llegado tarde.
+Todos los alumnos dijeron en coro:
+-¡Sí, señor!
+¡Sí, señor!
+¡Grieve ha llegado tarde!
+-¡Psch!
+¡Silencio!
+-dijo malhumorado el profesor y todos los niños se callaron.
+El profesor se paseaba pensativo.
+Fariña le decía a Yunque en secreto:
+-Grieve ha llegado tarde y no lo castigan.
+Porque su papá tiene plata.
+Todos los días llega tarde.
+¿Tú vives en su casa?
+¿Cierto que eres su muchacho?
+Yunque respondió:
+-Yo vivo con mi mamá...-¿En la casa de Humberto Grieve?
+-Es una casa muy bonita.
+Ahí está la patrona y el patrón.
+Ahí está mi mamá.
+Yo estoy con mi mamá.
+Humberto Grieve, desde su banco del otro lado del salón, miraba con cólera a Paco Yunque y le enseñaba los puños, porque se dejó llevar a la carpeta de Paco Fariña.
+Paco Yunque no sabía qué hacer.
+Le pegaría otra vez el niño Humberto, porque no se quedó con él, en su carpeta.
+Cuando saldrían del colegio, el niño Humberto le daría un empujón en el pecho y una patada en la pierna.
+El niño Humberto era malo y pegaba pronto, a cada rato.
+En la calle.
+En el corredor también.
+Y en la escalera.
+Y también en la cocina, delante su mamá y delante la patrona.
+Ahora le va a pegar, porque le estaba enseñando los puñetes y le miraba con ojos blancos.
+Yunque le dijo a Fariña:
+-Me voy a la carpeta del niño Humberto.
+Y Paco Fariña le decía:
+-No vayas.
+No seas zonzo.
+El señor te va a castigar.
+Fariña volteó a ver a Grieve y este Grieve le enseñó también a él los puños, refunfuñando no sé qué cosas, a escondidas del profesor.
+-¡Señor!
+-gritó Fariña-.
+Ahí, ese Grieve me está enseñando los puñetes.
+El profesor dijo:
+-¡Psch!
+¡Psch!
+¡Silencio!
+... Vamos a ver... Vamos a hablar hoy de los peces, y después, vamos a hacer todos un ejercicio escrito en una hoja de los cuadernos, y después me los dan para verlos.
+Quiero ver quién hace el mejor ejercicio, para que su nombre sea inscrito en el Cuaderno de Honor del Colegio, como el mejor alumno del primer año.
+¿Me han oído bien?
+Vamos a hacer lo mismo que hicimos la semana pasada.
+Exactamente lo mismo.
+Hay que atender bien a la clase.
+Hay que copiar bien el ejercicio que voy a escribir después en la pizarra.
+¿Me han entendido bien?
+Los alumnos respondieron en coro:
+-Sí, señor.
+-Muy bien -dijo el profesor-.
+Vamos a ver.
+Vamos a hablar ahora de los peces.
+Varios niños quisieron hablar.
+El profesor le dijo a uno de los Zumiga que hablase.
+-Señor -dijo Zumiga-:
+Había en la playa mucha arena.
+Un día nos metimos entre la arena y encontramos un pez medio vivo y lo llevamos a mi casa.
+Pero se murió en el camino...Humberto Grieve dijo:
+-Señor:
+yo he cogido muchos peces y los he llevado a mi casa y los he soltado en mi salón y no se mueren nunca.
+El profesor preguntó:
+-Pero... ¿los deja usted en alguna vasija con agua?
+-No, señor.
+Están sueltos, entre los muebles.
+Todos los niños se echaron a reír.
+Un chico, flacucho y pálido, dijo:
+-Mentira, señor.
+Porque el pez se muere pronto, cuando lo sacan del agua.
+-No, señor -decía Humberto Grieve-.
+Porque en mi salón no se mueren.
+Porque mi salón es muy elegante.
+Porque mi papá me dijo que trajera peces y que podía dejarlos sueltos entre las sillas.
+Paco Fariña se moría de risa.
+Los Zumiga también.
+El chico rubio y gordo, de chaqueta blanca y el otro, cara redonda y chaqueta verde, se reían ruidosamente.
+¡Qué Grieve tan divertido!
+¡Los peces en su salón!
+¡Entre los muebles!
+¡Como si fuesen pájaros!
+Era una gran mentira lo que contaba Grieve.
+Todos los chicos exclamaban a la vez, reventando de risa:
+-Ja!
+Ja!
+Ja!
+Ja!
+Ja!
+¡Miente, señor!
+Ja!
+Ja!
+Ja!
+Ja!
+Ja!
+¡Mentira!
+¡Mentira!
+Humberto Grieve se enojó porque no le creían lo que contaba.
+Todos se burlaban de lo que había dicho.
+Pero Grieve recordaba que trajo dos peces pequeños a su casa y los soltó en su salón y ahí estuvieron muchos días.
+Los movió y se movían.
+No estaba seguro si vivieron muchos días o murieron pronto.
+Grieve, de todos modos, quería que le creyeran lo que decía.
+En medio de las risas de todos, le dijo a uno de los Zumiga:
+-¡Claro!
+Porque mi papá tiene mucha plata.
+Y me ha dicho que va hacer llevar a mi casa a todos los peces del mar.
+Para mí.
+Para que juegue con ellos en mi salón grande.
+El profesor dijo en alta voz:
+-¡Bueno!
+¡Bueno!
+¡Silencio!
+Grieve no se acuerda bien, seguramente.
+Porque los peces mueren cuando...Los niños añadieron en coro:
+-... se les saca del agua.
+-Eso es -dijo el profesor.
+El niño flacucho y pálido dijo:
+-Porque los peces tienen sus mamás en el agua y sacándolos, se quedan sin mamás.
+-¡No, no, no!
+-dijo el profesor-.
+Los peces mueren fuera del agua, porque no pueden respirar.
+Ellos toman el aire que hay en el agua, y cuando salen, no pueden absorber el aire que hay afuera.
+-Porque ya están como muertos -dijo un niño.
+Humberto Grieve dijo:
+-Mi papá puede darles aire en mi casa, porque tiene bastante plata para comprar todo.
+El chico vestido de verde dijo:
+-Mi papá también tiene plata.
+-Mi papá también -dijo otro chico.
+Todos los niños dijeron que sus padres tenían mucho dinero.
+Paco Yunque no decía nada y estaba pensando en los peces que morían fuera del agua.
+Fariña le dijo a Paco Yunque:
+-Y tú, ¿tu papá no tiene plata?
+Paco Yunque reflexionó y se acordó haberle visto una vez a su mamá con unas pesetas en la mano.
+Yunque dijo a Fariña:
+-Mi mamá tiene también mucha plata.
+-¿Cuánto?
+-le preguntó Fariña.
+-Como cuatro pesetas.
+Paco Fariña dijo al profesor en voz alta:
+-Paco Yunque dice que su mamá tiene también mucha plata.
+-¡Mentira, señor!
+-respondió Humberto Grieve-.
+Paco Yunque miente, porque su mamá es la sirviente de mi mamá y no tiene nada.
+El profesor tomó la tiza y escribió en la pizarra, dando la espalda a los niños.
+Humberto Grieve, aprovechando de que no le veía el profesor, dio un salto y le jaló de los pelos a Yunque, volviéndose a la carrera a su carpeta.
+Yunque se puso a llorar.
+-¿Qué es eso?
+-dijo el profesor, volviéndose a ver lo que pasaba.
+Paco Fariña dijo:
+-Grieve le ha tirado de los pelos, señor.
+-No, señor -dijo Grieve-.
+Yo no he sido.
+Yo no me he movido de mi sitio.
+-¡Bueno, bueno!
+-dijo el profesor-.
+¡Silencio!
+¡Cállese, Paco Yunque!
+¡Silencio!
+Siguió escribiendo en la pizarra;
+y después preguntó a Grieve:
+-Si se le saca del agua, ¿qué sucede con el pez?
+-Va a vivir en mi salón -contestó Grieve.
+Otra vez se reían de Grieve los niños.
+Este Grieve no sabía nada.
+No pensaba más que en su casa y en su salón y en su papá y en su plata.
+Siempre estaba diciendo tonterías.
+-Vamos a ver, usted, Paco Yunque -dijo el profesor-.
+¿Qué pasa con el pez, si se le saca del agua?
+Paco Yunque, medio llorando todavía por el jalón de pelos que le dio Grieve, repitió de una tirada lo que dijo el profesor:
+-Los peces mueren fuera del agua porque les falta aire.
+-¡Eso es!
+-decía el profesor-.
+Muy bien.
+Volvió a escribir en la pizarra.
+Humberto Grieve aprovechó otra vez de que no podía verle el profesor y fue a darle un puñetazo a Paco Fariña en la boca y regresó de un salto a su carpeta.
+Fariña, en vez de llorar como Paco Yunque, dijo a grandes voces al profesor:
+-¡Señor!
+¡Acaba de pegarme Humberto Grieve!
+-¡Sí, señor!
+¡Sí, señor!
+-decían todos los niños a la vez.
+Una bulla tremenda había en el salón.
+El profesor dio un puñetazo en su pupitre y dijo:
+-¡Silencio!
+El salón se sumió en un silencio completo y cada alumno estaba en su carpeta, serio y derecho, mirando ansiosamente al profesor.
+¡Las cosas de este Humberto Grieve!
+¡Ya ven lo que estaba pasando por su cuenta!
+¡Ahora habrá que ver lo que iba a hacer el profesor, que estaba colorado de cólera!
+¡Y todo por culpa de Humberto Grieve!
+-¿Qué desorden era ese?
+-preguntó el profesor a Paco Fariña.
+Paco Fariña, con los ojos brillantes de rabia, decía:
+-Humberto Grieve me ha pegado un puñetazo en la cara, sin que yo le haga nada.
+-¿Verdad, Grieve?
+-No, señor -dijo Humberto Grieve-.
+Yo no le he pegado.
+El profesor miró a todos los alumnos sin saber a qué atenerse.
+¿Quién de los dos decía la verdad?
+¿Fariña o Grieve?
+-¿Quién lo ha visto?
+-preguntó el profesor a Fariña.
+-¡Todos, señor!
+Paco Yunque también lo ha visto.
+-¿Es verdad lo que dice Paco Fariña?
+-le preguntó el profesor a Yunque.
+Paco Yunque miró a Humberto Grieve y no se atrevió a responder, porque si decía que sí, el niño Humberto le pegaría a la salida.
+Yunque no dijo nada y bajó cabeza.
+Fariña dijo:
+-Yunque no dice nada, señor, porque Humberto Grieve le pega, porque es su muchacho y vive en su casa.
+El profesor preguntó a los otros alumnos:
+-¿Quién otro ha visto lo que dice Fariña?
+-¡Yo, señor!
+¡Yo, señor!
+¡Yo, señor!
+El profesor volvió a preguntar a Grieve:
+-¿Entonces, es cierto, Grieve, que le ha pegado usted a Fariña?
+-¡No, señor!
+Yo no le he pegado.
+-Cuidado con mentir, Grieve.
+¡Un niño decente como usted, no debe mentir!
+-No, señor.
+Yo no le he pegado.
+-Bueno.
+Yo creo en lo que dice usted.
+Yo sé que usted no miente nunca.
+Bueno.
+Pero tenga usted mucho cuidado en adelante.
+El profesor se puso a pasear, pensativo, y todos los alumnos seguían circunspectos y derechos en sus bancos.
+Paco Fariña gruñía a media voz y como queriendo llorar:
+-No le castigan, porque su papá es rico.
+Le voy a decir a mi mamá.
+El profesor le oyó y se plantó enojado delante de Fariña y le dijo en alta voz:
+-¿Qué está usted diciendo?
+Humberto Grieve es un buen alumno.
+No miente nunca.
+No molesta a nadie.
+Por eso no le castigo.
+Aquí, todos los niños son iguales, los hijos de ricos y los hijos de pobres.
+Yo los castigo aunque sean hijos de ricos.
+Como usted vuelva a decirlo lo que está diciendo del padre de Grieve, le pondré dos horas de reclusión.
+¿Me ha oído usted?
+Paco Fariña estaba agachado.
+Paco Yunque también.
+Los dos sabían que era Humberto Grieve quien les había pegado y que era un gran mentiroso.
+El profesor fue a la pizarra y siguió escribiendo.
+Paco Fariña le preguntaba a Paco Yunque:
+-¿Y por qué no se lo dices a tu mamá?
+-Porque si le digo a mi mamá, también me pega y la patrona se enoja.
+Mientras el profesor escribía en la pizarra, Humberto Grieve se puso a llenar de dibujos su cuaderno.
+Paco Yunque estaba pensando en su mamá.
+Después se acordó de la patrona y del niño Humberto.
+¿Le pegaría al volver a la casa?
+Yunque miraba a los otros niños y éstos no le pegaban a Yunque ni a Fariña, ni a nadie.
+Tampoco le querían agarrar a Yunque en las otras carpetas, como quiso hacerlo el niño Humberto.
+¿Por qué el niño Humberto era así con él?
+Yunque se lo diría ahora a su mamá y si el niño Humberto le pegaba, se lo diría al profesor.
+Pero el profesor no le hacía nada al niño Humberto.
+Entonces, se lo diría a Paco Fariña.
+Le preguntó a Paco Fariña:
+-¿A ti también te pega el niño Humberto?
+-¿A mí?
+¡Qué me va a pegar a mí!
+Le pego un puñetazo en el hocico y le hecho sangre.
+¡Vas a ver!
+¡Como me haga alguna cosa!
+¡Déjalo y verás!
+¡Y se lo diré a mi mamá!
+¡Y vendrá mi papá y le pegará a Grieve y a su papá también y a todos!
+Paco Yunque le oía asustado a Paco Fariña lo que decía.
+¿Cierto sería que le pegaría al niño Humberto?
+¿Y que su papá vendría a pegarle al señor Grieve?
+Paco Yunque no quería creerlo, porque al niño Humberto no le pegaba nadie.
+Si Fariña le pegaba, vendría el patrón y le pegaría a Fariña y también al papá de Fariña.
+Le pegaría el patrón a todos.
+Porque todos le tenían miedo.
+Porque el señor Grieve hablaba muy serio y estaba mandando siempre.
+Y venían a su casa señores y señoras que le tenían miedo y obedecían siempre al patrón y a la patrona.
+En buena cuenta, el señor Grieve podía más que el profesor y más que todos.
+Paco Yunque miró al profesor que escribía en la pizarra.
+¿Quién era el profesor?
+¿Por qué era tan serio y daba miedo?
+Yunque seguía mirándolo.
+No era el profesor igual a su papá ni al señor Grieve.
+Más bien se parecía a otros señores que venían a la casa y hablaban con el patrón.
+Tenía un pescuezo colorado y su nariz parecía moco de pavo.
+Sus zapatos hacían risss risss rissss risssss, cuando caminaba mucho.
+Yunque empezó a fastidiarse.
+¿A qué hora se iría a su casa?
+Pero el niño Humberto le iba a pegar a la salida del colegio.
+Y la mamá de Paco Yunque le diría al niño Humberto:
+“No, niño.
+No le pegue usted a Paquito.
+No sea tan malo”.
+Y nada más le diría.
+Pero Paco tendría colorada la pierna de la patada del niño Humberto.
+Y Paco se pondría a llorar.
+Porque al niño Humberto nadie le hacía nada.
+Y porque el patrón y la patrona le querían mucho al niño Humberto, y Paco Yunque tenía pena porque el niño Humberto le pegaba mucho.
+Todos, todos, todos le tenían miedo al niño Humberto y a sus papás.
+Todos.
+Todos.
+Todos.
+El profesor también.
+La cocinera.
+Su hija.
+La mamá de Paco.
+El Venancio con su mandil.
+La María que lava las bacinicas.
+Quebró ayer una bacinica en tres pedazos grandes.
+¿Le pegaría también el patrón al papá de Paco Yunque?
+¡Qué cosa fea era esto del patrón y del niño Humberto!
+Paco Yunque quería llorar.
+¿A qué hora acabaría de escribir el profesor en la pizarra?
+-¡Bueno!
+-dijo el profesor, cesando de escribir-.
+Ahí está el ejercicio escrito.
+Ahora, todos sacan sus cuadernos y copian lo que hay en la pizarra.
+Hay que copiarlo completamente igual.
+-¿En nuestros cuadernos?
+-preguntó tímidamente Paco Yunque.
+-Sí, en sus cuadernos -le respondió el profesor-.
+¿Usted sabe escribir un poco?
+-Sí, señor.
+Porque mi papá me enseñó en el campo.
+-Muy bien.
+Entonces, todos a copiar.
+Los niños sacaron sus cuadernos y se pusieron a copiar el ejercicio que el profesor había escrito en la pizarra.
+-No hay que apurarse -decía el profesor-.
+Hay que escribir poco a poco, para no equivocarse.
+Humberto Grieve preguntó:
+-¿Es, señor, el ejercicio escrito de los peces?
+-Sí.
+A copiar todo el mundo.
+El salón se sumió en el silencio.
+No se oía sino el ruido de los lápices.
+El profesor se sentó a su pupitre y también se puso a escribir en unos libros.
+Humberto Grieve, en vez de copiar su ejercicio, se puso otra vez a hacer dibujos en su cuaderno.
+Lo llenó completamente de dibujos de peces, de muñecos y de cuadritos.
+En la última página dibujó estas figuras.
+Al cabo de un rato, el profesor se paró y preguntó:
+-¿Ya terminaron?
+-Ya, señor -respondieron todos a la vez.
+-Bueno -dijo el profesor-.
+Pongan al pie sus nombres bien claros.
+En ese momento sonó la campana del recreo.
+Una gran algazara volvieron a hacer los niños y salieron corriendo al patio.
+Paco Yunque había copiado su ejercicio muy bien y salió al recreo con su libro, su cuaderno y su lápiz.
+Ya en el patio, vino Humberto Grieve y agarró a Paco Yunque por un brazo, diciéndole con cólera:
+-Ven a jugar al melo.
+Lo echó de un empellón al medio y le hizo derribar su libro, su cuaderno y su lápiz.
+Yunque hacía lo que le ordenaba Grieve, pero estaba colorado y avergonzado de que los otros niños viesen cómo lo zarandeaba el niño Humberto.
+Yunque quería llorar.
+Paco Fariña, los dos Zumiga y otros niños rodeaban a Humberto Grieve y a Paco Yunque.
+El niño flacucho y pálido recogió el libro, el cuaderno y el lápiz de Yunque, pero Humberto Grieve se los quitó a la fuerza, diciéndole:
+-¡Déjalos!
+¡No te metas!
+Porque Paco Yunque es mi muchacho.
+Humberto Grieve llevó al salón de clases las cosas de Paco Yunque y se las guardó en su carpeta.
+Después, volvió al patio a jugar con Paco Yunque.
+Le cogió del pescuezo y le hizo doblar la cintura y ponerse en cuatro manos.
+-Estáte quieto así -le ordenó imperiosamente-.
+No te muevas hasta que yo te diga.
+Humberto Grieve se retiró a cierta distancia y desde allí vino corriendo y dio un salto sobre Paco Yunque, apoyando las manos sobre sus espaldas y dándole una patada feroz en las posaderas.
+Volvió a retirarse y volvió a saltar sobre Paco Yunque, dándole otra patada.
+Mucho rato estuvo así jugando Humberto Grieve con Paco Yunque.
+Le dio como veinte saltos y veinte patadas.
+De repente se oyó un llanto.
+Era Yunque que estaba llorando de las fuertes patadas del niño Humberto.
+Entonces salió Paco Fariña del ruedo formado por los otros niños y se plantó ante Grieve, diciéndole:
+-¡No!
+¡No te dejo que saltes sobre Paco Yunque!
+Humberto Grieve le respondió amenazándole:
+-¡Oye!
+¡Oye!
+¡Paco Fariña!
+¡Paco Fariña!
+¡Te voy a dar un puñetazo!
+Pero Fariña no se movía y estaba tieso delante de Grieve y le decía:
+-¡Porque es tu muchacho, le pegas y lo saltas y lo haces llorar!
+¡Sáltalo y verás!
+Los dos hermanos Zumiga abrazaban a Paco Yunque y le decían que ya no llorase y le consolaban, diciéndole:
+-¿Por qué te dejas saltar así y dar de patadas?
+¡Pégale!
+¡Sáltalo tú también!
+¿Por qué te dejas?
+¡No seas zonzo!
+¡Cállate!
+¡Ya no llores!
+¡Ya nos vamos a ir a nuestras casas!
+Paco Yunque estaba siempre llorando y sus lágrimas parecían ahogarle.
+Se formó un tumulto de niños en torno a Paco Yunque y otro tumulto en torno a Humberto Grieve y a Paco Fariña.
+Grieve le dio un empellón brutal a Fariña y lo derribó al suelo.
+Vino un alumno más grande, del segundo año, y defendió a Fariña, dándole a Grieve un puntapié.
+Y otro niño del tercer año, más grande que todos, defendió a Grieve, dándole una furiosa trompada al alumno de segundo año.
+Un buen rato llovieron bofetadas y patadas entre varios niños.
+Eso era un enredo.
+Sonó la campana y todos los niños volvieron a sus salones de clase.
+A Paco Yunque lo llevaron por los brazos los dos hermanos Zumiga.
+Una gran gritería había en el salón del primer año, cuando entró el profesor.
+Todos se callaron.
+El profesor miró a todos muy serio y dijo como un militar:
+-¡Siéntense!
+Un traqueteo de carpetas y todos los alumnos estaban ya sentados.
+Entonces el profesor se sentó en su pupitre y llamó por lista a los niños para que le entregasen en sus cuartillas con los ejercicios escritos sobre el tema de los peces.
+A medida que el profesor recibía las hojas de los cuadernos, las iba leyendo y escribía las notas en unos libros.
+Humberto Grieve se acercó a la carpeta de Paco Yunque y le entregó su libro, su cuaderno y su lápiz.
+Pero antes había arrancado la hoja del cuaderno en que estaba el ejercicio de Paco Yunque y puso en ella su firma.
+Cuando el profesor dijo:
+“Humberto Grieve”, Grieve fue y presentó el ejercicio de Paco Yunque, como si fuese suyo.
+Y cuando el profesor dijo:
+“Paco Yunque”, Yunque se puso a buscar en su cuaderno la hoja en que escribió su ejercicio y no la encontró.
+-¿La ha perdido usted -le preguntó el profesor- o no la ha hecho usted?
+Pero Paco Yunque no sabía lo que se había hecho la hoja de su cuaderno y, muy avergonzado, se quedó en silencio y bajó la frente.
+-Bueno -dijo el profesor, y anotó en unos libros la falta de Paco Yunque.
+Después siguieron los demás entregando sus ejercicios.
+Cuando el profesor acabó de verlos todos, entró de repente al salón el Director del Colegio.
+El profesor y los niños se pusieron de pie respetuosamente.
+El Director miró como enojado a los alumnos y dijo en voz alta:
+-¡Siéntense!
+El Director le preguntó al profesor:
+-¿Ya sabe usted quién es el mejor alumno de su año?
+¿Han hecho el ejercicio semanal para calificarlos?
+-Sí, señor Director -dijo el profesor-.
+Acaban de hacerlo.
+La nota más alta la ha obtenido Humberto Grieve.
+-¿Dónde está su ejercicio?
+-Aquí está, señor Director.
+El profesor buscó entre todas las hojas de los alumnos y encontró el ejercicio firmado por Humberto Grieve.
+Se lo dio al Director, que se quedó viendo largo rato la cuartilla.
+-Muy bien -dijo el Director, contento.
+Subió al pupitre y miró severamente a los alumnos.
+Después les dijo con su voz un poco ronca pero enérgica:
+-De todos los ejercicios que ustedes han hecho ahora, el mejor es de Humberto Grieve.
+Así es que el nombre de este niño va a ser inscrito en el Cuadro de Honor de esta semana, como el mejor alumno del primer año.
+Salga afuera Humberto Grieve, todos los niños miraron ansiosamente a Humberto Grieve, que salió pavoneándose a pararse muy derecho y orgulloso delante del pupitre del profesor.
+El Director le dio la mano, diciéndole:
+-Muy bien, Humberto Grieve.
+Lo felicito.
+Así deben ser los niños.
+Muy bien.
+Se volvió el Director a los demás alumnos y les dijo:
+-Todos ustedes deben hacer lo mismo que Humberto Grieve.
+Deben ser buenos alumnos como él.
+Deben estudiar y ser aplicados como él.
+Deben ser serios, formales y buenos niños como él.
+Y si así lo hacen, recibirá cada uno un premio al fin del año y sus nombres serán también inscritos en el Cuadro de Honor del Colegio, como el de Humberto Grieve.
+A ver si la semana que viene, hay otro alumno que dé una buena clase y haga un buen ejercicio, como el que ha hecho hoy Humberto Grieve.
+Así lo espero.
+Se quedó el Director callado un rato.
+Todos los alumnos estaban pensativos y miraban a Humberto Grieve con admiración.
+¡Qué rico Grieve!
+¡Qué buen ejercicio había escrito!
+¡Ese sí que era bueno!
+¡Era el mejor alumno de todos!
+¡Llegando tarde y todo!
+¡Y pegándole a todos!
+¡Pero ya lo estaban viendo!
+¡Le había dado la mano al Director!
+¡Humberto Grieve, el mejor de todos los del primer año!
+El Director se despidió del profesor, hizo una venia a los alumnos, que se pararon para despedirlo, y salió.
+El profesor dijo después:
+-¡Siéntense!
+Un traqueteo de carpetas y todos los niños estaban ya sentados.
+El profesor ordenó a Grieve:
+-Váyase a su asiento.
+Humberto Grieve, muy alegre, volvió a su carpeta.
+Al pasar junto a Paco Fariña, le echó la lengua.
+El profesor subió a su pupitre y se puso a escribir en unos libros.
+Paco Fariña le dijo en voz baja a Paco Yunque:
+-Mira al señor, que está poniendo tu nombre en su libro, porque no has presentado tu ejercicio.
+¡Mírale!
+Te van a dejar ahora recluso y no vas a ir a tu casa.
+¿Por qué has roto tu cuaderno?
+¿Dónde lo pusiste?
+Paco Yunque no contestaba nada y estaba con la cabeza agachada.
+-¡Anda!
+-le volvió a decir Paco Fariña-.
+¡Contesta!
+¿Por qué no contestas?
+¿Dónde has dejado tu ejercicio?
+Paco Fariña se agachó a mirar la cara de Paco Yunque y le vio que estaba llorando.
+Entonces lo consoló, diciéndole:
+-¡Déjalo!
+¡No llores!
+¡Déjalo!
+¡No tengas pena!
+¡Vamos a jugar con mi tablero!
+¡Tiene torres negras!
+¡Déjalo!
+¡Yo te regalo mi tablero!
+¡No seas zonzo!
+¡Ya no llores!
+Pero Paco Yunque seguía llorando agachado.
+guacamayo
+agua
+nubes
+bagre
+El guacamayo es muy lindo.
+perdíz
+sal
+shicra
+mariposa
+La perdiz anda por el monte.
+gallo
+aguaje
+zorro
+gusano
+El gallo canta.
+avíspa
+sol
+hongo
+huayruro
+La avispa vuela.
+araña
+calabaza
+sirena
+tabaco
+La araña corre.
+papagayo
+sapo
+pájaro carpintero
+alacrán
+Miren al papagayo.
+garza
+chonta
+achiote
+chupé
+La garza está en el río.
+niño
+cerbatana
+pluma
+pijuayo
+El bebé gatea.
+maíz
+chaquira
+armadillo
+guayaba
+Cosechamos el maíz.
+gusano
+corteza
+batidor
+lagartija
+El gusano está pegado en la hoja.
+paujil
+gusano
+suri
+gato
+El paujil voló hacia el árbol.
+Pajáro Martin
+yarina
+leña
+chicharra
+El pajáro Martin busca su alimento.
+rana
+guineo
+cucaracha
+oro
+La rana croa.
+pato
+papaya
+carachama
+Papél
+El pato esta en el río.
+víbora
+maní
+miel
+arcilla
+La víbora esta brava.
+sachapapa
+guayaquil
+caracol
+boquichico
+Ya es tiempo de la sachapapa.
+luna
+carne
+árbol
+ishanga
+Miren a la luna llena.
+cerro
+camarón
+isleño
+canoa
+Miremos el cerro.
+noche
+sorpresa
+sí, claro
+lamento
+En la noche se ven las estrellas.
+venado
+espina
+colibri
+ají
+El venado corre.
+achuni
+majas
+cocona
+capirona
+El achuni anda por las ramas.
